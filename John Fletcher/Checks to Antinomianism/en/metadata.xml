@@ -1,0 +1,10 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Checks to Antinomianism</title>
+    <latintitle>checks-to-antinomianism</latintitle>
+    <author>John Fletcher</author>
+    <license>Public Domain</license>
+    <targets>
+       <target-set name="default"/>
+    </targets>
+</metadata> 

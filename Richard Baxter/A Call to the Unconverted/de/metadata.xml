@@ -1,0 +1,22 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Zuruf an Unbekehrte</title>
+    <latintitle>zuruf</latintitle>
+    <author>Richard Baxter</author>
+    <license>Text überarbeitet von Paul Walger, nach einer Vorlage der glaubensstimme.de. Urheberrechtlich geschützt durch nationales und internationales Recht.</license>
+    <img>zuruf.jpg</img>
+    <cover_stripe>
+Richard Baxter verkündigt in diesem Buch die Botschaft, die Gott ihm aufgetragen hat.
+Er kann nicht anders als das Evangelium zu predigten, und ruft seine Leser im heiligen Ernst auf
+sich zu bekehren oder für ewig verdammt zu werden.
+        
+Es ist ein ernster Aufruf an jeden, der sein Leben lang nach irdischem Glücke ausschaut, 
+und sein Gewissen in Trunk, Schwelgerei und Faulheit und törichter Lust untergehen lässt.
+  
+Richard Baxter war ein puritanischer Pastor in Kidderminster 
+und zeichnete aus durch Liebe und Treue in allem was er tat.
+    </cover_stripe>
+    <targets>
+       <target-set name="default"/>
+    </targets>
+</metadata> 

@@ -1,0 +1,12 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Betest du?</title>
+    <latintitle>betest-du</latintitle>
+    <author>J.C. Ryle</author>
+    <license>Text überarbeitet von Paul Walger, nach einer Vorlage der glaubensstimme.de. Urheberrechtlich geschützt durch nationales und internationales Recht.</license>
+    <source>glaubenstimme.de</source>
+    <img>betestdu.jpg</img>
+    <targets>
+        <target-set name="default"/>
+    </targets>
+</metadata> 

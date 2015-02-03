@@ -1,0 +1,13 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+  <title>Добрые советы проповедникам Евангелия</title>
+  <latintitle>student-lectures-ru</latintitle>
+  <author>Ч.Г.Сперджена</author>
+  <license>Copyright by blagovestnik.org</license>
+  <originalTitle>Student Lectures</originalTitle>
+  <originalAuthor>C.H. Spurgeon</originalAuthor>
+  <img>spurgeon-lectures.jpg</img>
+  <targets>
+        <target-set name="default" />
+    </targets>
+</metadata> 

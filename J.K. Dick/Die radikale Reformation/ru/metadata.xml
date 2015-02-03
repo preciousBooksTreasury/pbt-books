@@ -1,0 +1,12 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Радикальная реформация</title>
+    <latintitle>radical-refornation-ru</latintitle>
+    <author>К. Дж. Дик</author>
+    <license>Copyright by blagovestnik.org</license>
+    <img>radical.jpg</img>
+    <source>blagovestnik.org</source>
+     <targets>
+       <target-set name="default" />
+    </targets>
+</metadata> 

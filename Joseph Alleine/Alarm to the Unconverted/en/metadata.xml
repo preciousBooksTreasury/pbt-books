@@ -1,0 +1,11 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Alarm to the Unconverted</title>
+    <latintitle>alarmtothe</latintitle>
+    <author>Joseph Alleine</author>
+    <license>Public Domain</license>
+    <img>alarm.jpg</img>
+    <targets>
+       <target-set name="default"/>
+    </targets>
+</metadata> 

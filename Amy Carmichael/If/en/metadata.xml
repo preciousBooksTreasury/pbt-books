@@ -1,0 +1,11 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>If</title>
+    <latintitle>If</latintitle>
+    <author>Amy Carmichael</author>
+    <license>Public Domain</license>
+    <img>if.jpeg</img>
+     <targets>
+        <target-set name="small"/>
+    </targets>
+</metadata> 

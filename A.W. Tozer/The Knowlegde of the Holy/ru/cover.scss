@@ -1,0 +1,12 @@
+@import "style/_coverConfig.scss";
+
+$width: 3425px;
+$height: 2625px;
+$back: 50px;
+$begin: 1688px;
+@import "style/_cover.scss";
+
+img {
+    width: $width;
+    height: $height;
+}

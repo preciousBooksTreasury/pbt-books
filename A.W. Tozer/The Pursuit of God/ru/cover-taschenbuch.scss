@@ -1,0 +1,15 @@
+@import "style/_tools.scss";
+@import "style/_coverConfig.scss";
+
+$width: mm-to-px(264);
+$height: mm-to-px(196);
+$back: mm-to-px(8) ;
+$begin: mm-to-px(128);
+
+@import "style/_cover.scss";
+
+
+img {
+    width: $width;
+    height: $height;
+}

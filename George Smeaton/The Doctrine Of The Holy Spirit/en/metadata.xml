@@ -1,0 +1,11 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>The Doctrine of the Holy Spirit</title>
+    <latintitle>holy-spirit</latintitle>
+    <author>George Smeaton</author>
+    <license>Public Domain</license>
+    <img>holy-spirit.jpg</img>
+    <targets>
+        <target-set name="default" />
+    </targets>
+</metadata> 

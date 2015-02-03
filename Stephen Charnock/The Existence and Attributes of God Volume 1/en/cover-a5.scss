@@ -1,0 +1,13 @@
+@import "style/_tools.scss";
+@import "style/_coverConfig.scss";
+
+$width: mm-to-px(374);
+$height: mm-to-px(238);
+$back: mm-to-px(46) ;
+$begin: mm-to-px(164);
+$titleFontSize: 95px;
+$authorFontSize: 65px;
+
+
+@import "style/_cover.scss";
+

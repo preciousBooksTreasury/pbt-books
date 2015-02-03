@@ -1,0 +1,11 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Vom Glauben der Christen</title>
+    <latintitle>vom-glauben-der-christen</latintitle>
+    <author>Peter Riedemann</author>
+    <license>Public Domain</license>
+    <img>vomglaubenderchristen.jpg</img>
+    <targets>
+        <target-set name="default"/>
+    </targets>
+</metadata> 

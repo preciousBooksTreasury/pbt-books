@@ -1,0 +1,12 @@
+<?xml version="1.0" encoding="utf-8"?>
+<metadata>
+    <title>Thoughts for young men</title>
+    <latintitle>thoughts-for-young-men</latintitle>
+    <author>J.C. Ryle</author>
+    <license>Public Domain</license>
+    <source>gracegems.org/</source>
+    <img>thoughtsforyoung.jpg</img>
+    <targets>
+        <target-set name="default"/>
+    </targets>
+</metadata> 
