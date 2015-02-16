@@ -9,4 +9,4 @@ originalAuthor: Amy Carmichael
 img: gold-chord.jpg
 coverStripe: ""
 targets:
-    - test
+    - default

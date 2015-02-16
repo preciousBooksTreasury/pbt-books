@@ -50,7 +50,7 @@ html {
 .stripe, .stripe_back {
   width: 100%;
   height: 440px;
-  background-color: rgba(0, 157, 255, 0.8);
+  background-color: rgba(0, 157, 255, 0.9);
   text-align: center;
   border-top: 10px solid rgba(255, 255, 255, 0.95);
   border-bottom: 10px solid rgba(255, 255, 255, 0.95);
