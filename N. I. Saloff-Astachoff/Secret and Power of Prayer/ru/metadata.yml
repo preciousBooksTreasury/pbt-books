@@ -6,5 +6,5 @@ latinAuthor: N.I. Saloff-Astachoff
 license: Gemeinfrei
 img: secret-prayer.jpg
 coverStripe: ""
-targets:
+target-sets:
     - default
