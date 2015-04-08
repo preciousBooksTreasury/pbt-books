@@ -58,14 +58,17 @@ und Weisheit und Unparteilichkeit; ihr Hadern aber mit Gott wird ihnen
 nichts helfen, und die Vollstreckung des gerechten Urteils, über das sie
 murren, nicht verzögern.
 
-Die Worte unsres Verses enthalten 1) Gottes Reinigung von dem Vorwurf,
+Die Worte unsres Verses enthalten 
+1) Gottes Reinigung von dem Vorwurf,
 an ihrem Verderben Schuld zu sein. Er reinigt sich aber nicht dadurch,
 dass er sein Gesetz zurücknähme, dass der Gottlose sterben soll; oder
 dass er die durch dies Gesetz begründeten Gerichte und Strafen
 zurücknähme, oder dass ihnen irgend eine Hoffnung gäbe, dass das Gesetz
 nicht vollzogen werden soll; sondern durch die Erklärung, dass er nicht
 an ihrem Tod, sondern an ihrer Bekehrung zum Leben Gefallen findet, und
-das bekräftigt er ihnen durch einen Eid. 2) eine ausdrückliche Ermahnung
+das bekräftigt er ihnen durch einen Eid. 
+
+2) eine ausdrückliche Ermahnung
 an die Sünder, sich zu bekehren, in welcher Gott nicht nur gebietet,
 sondern auch überredet, und sich sogar herabläßt, die Sache vernünftig
 mit ihnen zu überlegen. Warum wollen sie sterben? Der Hauptzweck dieser
@@ -140,20 +143,20 @@ Gottes kommen.“^[Matthäus 18,3.] –  „Wahrlich, wahrlich, ich sage dir, es
 denn, dass Jemand von Neuem geboren werde, so kann er das Reich Gottes
 nicht sehen.“^[Johannes 3,3] – „Darum ist Jemand in Christus, so ist er
 eine neue Kreatur, das Alte ist vergangen, siehe, es ist Alles neu
-geworden.“^[2 Kor. 5,17] – „Ziehet den alten Menschen aus mit seinen
+geworden.“^[2 Korinther 5,17] – „Ziehet den alten Menschen aus mit seinen
 Werken, und ziehet den neuen an, der da erneuert wird zu der Erkenntnis,
-nach dem Ebenbilde dessen, der ihn geschaffen hat.“^[Kol. 3,9.10] – 
-„Ohne Heiligung wird niemand den Herrn sehen.“^[Hebr. 12,14] – „Die aber
+nach dem Ebenbilde dessen, der ihn geschaffen hat.“^[Kolosser 3,9-10] – 
+„Ohne Heiligung wird niemand den Herrn sehen.“^[Hebräer 12,14] – „Die aber
 fleischlich sind, mögen Gott nicht gefallen. Wer aber Christi Geist
-nicht hat, der ist nicht sein.“^[Röm. 8,8.9] – „Denn in Christus Jesu
+nicht hat, der ist nicht sein.“^[Römer 8,8-9] – „Denn in Christus Jesu
 gilt weder Beschneidung etwas, noch Vorhaut etwas, sondern eine neue
-Schöpfung.“^[Gal. 6,15] – „Nach seiner großen Barmherzigkeit hat er uns
+Schöpfung.“^[Galater 6,15] – „Nach seiner großen Barmherzigkeit hat er uns
 wiedergeboren zu einer lebendigen Hoffnung.“^[1 Petrus 1,3] – „Alle, die da
 wiedergeboren sind, nicht aus vergänglichem, sondern aus unvergänglichem
 Samen, nämlich aus dem lebendigen Worte Gottes, das da ewiglich
-bleibet.“^[1 Petrus 1,24] –  „Seid begierig nach der vernünftigen lautern
+bleibet.“^[1. Petrus 1,24] –  „Seid begierig nach der vernünftigen lautern
 Milch, als die jetzt geborenen Kindlein, auf dass ihr durch dieselbige
-zunehmet.“ ^[1 Petr. 2,2] – „Der Herr prüfet den Gerechten; aber seine Seele
+zunehmet.“ ^[1. Petrus 2,2] – „Der Herr prüfet den Gerechten; aber seine Seele
 hasset den Gottlosen, und die gern freveln.“^[Psalm 11,4]
 
 So wie ich diese so einfachen Worte nicht erst zu erklären brauche, so
@@ -298,7 +301,7 @@ eurem Blute. „Wenn Ich zu dem Gottlosen sage: Du Gottloser musst des
 Tods sterben, und Du sagst ihm solches nicht, dass sich der Gottlose
 warnen lasse vor seinem Wesen, so wird wohl der Gottlose sterben ums
 eines gottlosen Wesens willen; aber sein Blut will ich von Deiner Hand
-fordern!“ (Hes. 33,8) Ihr seht, obgleich die Lehre hart und unwillkommen
+fordern!“ ^[Hesekiel 33,8] Ihr seht, obgleich die Lehre hart und unwillkommen
 ist, müssen wir sie doch predigen, und ihr müsst sie hören. Immer ist’s
 ja doch noch leichter, von der Hölle zu hören, als sie zu fühlen. Wenn
 es euch nicht so durchaus notwendig wäre, wollten wir gerne eure zarten
@@ -988,7 +991,7 @@ könnt, wann habt ihr je einen nüchternen Mann sagen hören, dass keine
 Hoffnung für euch sei, wenn ihr auch Buße getan und euch bekehrt hättet?
 Nein, es ist gerade das Gegenteil, was wir täglich vom Herrn euch
 verkündigen; wer irgend nur wiedergeboren ist und durch Glauben und Buße
-eine neue Creatur wird, soll ganz gewiss selig werden. Ja, so fern sind
+eine neue Schöpfung wird, soll ganz gewiss selig werden. Ja, so fern sind
 wir davon, euch die Verzweiflung zu predigen, dass wir vielmehr euch
 überreden, keinen Zweifel in diese Wahrheit zu setzen. Leben ist es und
 nicht Tod, was den Hauptteil unserer Botschaft an euch ausmacht; unser
@@ -1034,7 +1037,7 @@ eure Seelen liebet, bedenket, was es für ein Umkehren ist, von welchem
 die Schrift spricht. Es heißt nicht, das alte Haus ausbessern, sondern
 es ganz einreißen und ein neues erbauen auf Christus, dem Felsen und
 sichern Grundsteine? Es heißt nicht, dies und das in dem irdischen Laufe
-des Lebens ausbessern, sondern das Fleisch ertödten und im Geiste leben.
+des Lebens ausbessern, sondern das Fleisch ertöten und im Geiste leben.
 Es heißt nicht, dem Fleisch und der Welt in einer verfeinerten Weise,
 ohne eben ärgerliche, schimpfliche Sünden zu begehen, und mit einem
 gewissen Anstriche der Religiösität leben, sondern es heißt, euren Herrn
@@ -1066,7 +1069,7 @@ Schriftstellen will ich es euch nur an diesen wenigen nachweisen.
 Zuerst seht ihr es hier in meinem Texte und den folgenden Versen und in
 dem 18. Kap. Ezech. so klar, als es immer ausgesprochen werden kann, und
 in Kor. 2,5,17-21. habt ihr den wahren Inhalt unseres Auftrages. „Darum,
-ist Jemand in Christus, so ist er eine neue Creatur; das alte ist
+ist Jemand in Christus, so ist er eine neue Schöpfung; das alte ist
 vergangen, es ist alles neu worden. Aber das alles von Gott, der uns mit
 ihm selber versöhnet hat durch Jesus Christus, und das Amt gegeben, das
 die Versöhnung predigt. Denn Gott war in Christus, und versöhnete die
@@ -1077,7 +1080,7 @@ wir nun an Christi statt, lasset euch versöhnen mit Gott. Denn er hat
 den, der von keiner Sünde wusste, für uns zur Sünde gemacht, auf dass
 wir würden in ihm die Gerechtigkeit, die vor Gott gilt.“ So Mk. XVI,
 15,16. „Gehet hin in alle Welt, und prediget das Evangelium aller
-Creatur. Wer da glaubet und getaufet wird, der wird selig werden; wer
+Schöpfung. Wer da glaubet und getaufet wird, der wird selig werden; wer
 aber nicht glaubet, der wird verdammt werden.“ Und Lukas XXIV, 46,47.
 „Also musste Christus leiden und auferstehen von den Toten am dritten
 Tage, und predigen lassen in seinem Namen Buße und Vergebung der Sünden
@@ -1091,7 +1094,7 @@ allen, durch welches ihr nicht konntet im Gesetz Moses gerecht werden.
 Wer aber an diesen glaubet, der ist gerecht.“ Und damit ihr nicht
 denket, dass dies auf die Juden beschränkt ist, seht Galat. 6,15. „denn
 in Christus Jesu gilt weder Beschneidung, noch Vorhaut etwas, sondern
-eine neue Creatur.“ Luk. 14,17. „Kommt, denn es ist alles bereit.“ und
+eine neue Schöpfung.“ Luk. 14,17. „Kommt, denn es ist alles bereit.“ und
 22,24.
 
 Ihr seht hieraus, dass wir beauftragt sind, euch allen Leben anzubieten,
@@ -1099,7 +1102,7 @@ und euch von Gott zu sagen, dass, wenn ihr umkehren wollet, ihr leben
 möget.
 
 Hiermit könnt ihr eure Seelen sicherlich trösten; denn die Liebe Gottes
-ist die Quelle dieses Anerbietens, (Joh. 3,16.) und das blut des Sohnes
+ist die Quelle dieses Angebotes, ^[Joh. 3,16] und das Blut des Sohnes
 Gottes hat es erkauft; die Glaubwürdigkeit und Wahrheit Gottes sind
 darauf verpfändet, dass das Versprechen erfüllet werde: Wunder haben oft
 die Wahrheit desselben versiegelt, Prediger werden durch die ganze Welt
@@ -1121,8 +1124,8 @@ leben, ob ihr umkehret, oder nicht.“ Die Worte Gottes sind, wie ich euch
 gezeigt habe: „Es sei denn, dass ihr umkehret und werdet wie die Kinder,
 so könnt ihr nicht in das Himmelreich kommen.“ Matt. 18,3. „Es sei denn,
 dass Jemand von Neuem geboren werde, kann er das Reich Gottes nicht
-sehen.“ Joh. 3,3,5. „Ohne Heiligung wird Niemand den Herrn sehen.“ Hebr.
-12,1,14. – Des Teufels Worte sind: „Ihr könnt selig werden, ohne neu
+sehen.“ ^[Johannes 3,3-5]. „Ohne Heiligung wird niemand den Herrn sehen.“ ^[Hebräer
+12,14] – Des Teufels Worte sind: „Ihr könnt selig werden, ohne neu
 geboren und bekehrt zu sein; ihr könnt euch ganz wohl befinden, ohne
 heilig zu sein; Gott schreckt euch nur, er ist erbarmungsreicher, als
 dass er tun sollte, wie er sagt, er wird besser gegen euch sein, als
@@ -1135,7 +1138,7 @@ als Gott. So sagt der Herr jetzt: „kehre um oder stirb; und der Teufel
 sagt: „du wirst nicht sterben, wenn du nur zu guter Letzt Gottes
 Barmherzigkeit anrufst und die Sündenwerke aufgiebst, wenn du sie nicht
 länger üben kannst. Und dies nun ist das Wort, welches die Welt glaubt.
-O der entsetzlichen Gottlosigkeit, dem Teufel mehr als Gott zu glauben!
+O die entsetzlichen Gottlosigkeit, dem Teufel mehr als Gott zu glauben!
 
 Doch dies ist noch nicht das Aergste, sondern gotteslästerlich nennen
 sie dies Vertrauen und Glauben zu Gott haben und sich seiner getrösten;
@@ -1176,13 +1179,11 @@ bevor ich eine weitere Anwendung davon mache.
 nicht an ihrem Tod und ihrer Verdammung. Er hat es lieber, dass die Welt
 umkehret und lebt, als dass sie dahingeht und stirbt.**
 
-ich will zuerst euch lehren, wie dies zu verstehen sei, und dann euch
+Ich will zuerst euch lehren, wie dies zu verstehen sei, und dann euch
 die Wahrheit davon klar machen. – Für’s erste müsst ihr Folgendes
 merken:
 
-1)
-
-Eine einfache Willigkeit oder Geneigtheit ist die erste Handlung des
+**1)** Eine einfache Willigkeit oder Geneigtheit ist die erste Handlung des
 Willens, und folgt der einfachen Auffassung des Verstandes, bevor er
 dazu schreitet, Dinge unter einander zu vergleichen; aber die Handlung
 des Auswählens ist dann die folgende auf Seiten des Willens, und setzt
@@ -1190,9 +1191,7 @@ eine Vergleichung auf Seiten des Verstandes voraus. Diese beiden
 Handlungen können oftmals auf entgegengesetzte Gegenstände gerichtet
 sein, ohne irgend einer Schuld in der handelnden Person.
 
-2)
-
-Eine ungeheuchelte Willigkeit kann verschiedene Stufen haben. Für einige
+**2)** Eine ungeheuchelte Willigkeit kann verschiedene Stufen haben. Für einige
 Dinge bin ich willig, alles was in meiner Kraft steht, zu tun, um sie zu
 Stande zu bringe, bei anderen ist es mein ernster Wille, dass sie ein
 andrer tun möge, während ich doch nicht willens bin, alles zu tun,
@@ -1200,16 +1199,12 @@ dessen ich fähig bin, um sie zu Stande zu bringen, oder mich durch
 mancherlei Gründe abhalten lasse, wenn ich auch entschlossen bin, alles
 zu tun, was mir zukommt.
 
-3)
-
-Der Wille eines Regenten, als eines solchen, tut sich in Entwerfung und
+**3)** Der Wille eines Regenten, als eines solchen, tut sich in Entwerfung und
 Ausführung von Gesetzen kund; der Wille eines Menschen in seinem
 einfachen natürlichen Stande dagegen, oder als unabhängigen Herrn seiner
 selbst, gibt sich kund in seinen Wünschen und Beschlüssen.
 
-4)
-
-Der Wille eines Regenten, als Gesetzgebers, ist zuerst und vornehmlich,
+**4)** Der Wille eines Regenten, als Gesetzgebers, ist zuerst und vornehmlich,
 dass seinen Gesetzen Gehorsam geleistet werde, nicht aber, dass Strafe
 über irgend Jemand verhängt werde, sondern dies nur dann, wenn man
 seinen Dienern nicht gehorcht; allein der Wille eines Regenten, als
@@ -1219,36 +1214,26 @@ beschließt demgemäß unsere Belohnung oder Bestrafung.
 Nachdem ich euch diese notwendige Begriffe klar gemacht habe, werde ich
 sie zunächst auf den vorliegenden Fall in folgenden Sätzen anwenden:
 
-1)
-
-Die Betrachtung der Schrift und der Welt bringt es mit sich, dass wir
+**1)** Die Betrachtung der Schrift und der Welt bringt es mit sich, dass wir
 Gott in diesem Leben erkennen sollen; und so legen wir ihm ganz nach dem
 Maßstabe unserer menschlichen Natur, Verstand und Willen bei, indem wir
 davon alle Unvollkommenheiten bestmöglichst ausschließen, weil wir
 höherer und vollkommenerer Begriffe von ihm nicht fähig sind.
 
-2)
-
-Aus demselben Grunde unterscheiden wir mit der Schrift, die Aeußerungen
+**2)** Aus demselben Grunde unterscheiden wir mit der Schrift, die Aeußerungen
 des göttlichen Willens, als verschieden von den Beweggründen und
 Absichten desselben, obgleich sie in Gottes Wesen alle Eins sind.
 
-3)
-
-Dies tun wir um so dreister, als wir, wenn wir von Christus sprechen,
+**3)** Dies tun wir um so dreister, als wir, wenn wir von Christus sprechen,
 von Seiten seiner menschlichen Natur noch mehr Grund dazu haben.
 
-4)
-
-Und so sagen wir denn, dass die einfache Zuneigung, der gute Wille oder
+**4)** Und so sagen wir denn, dass die einfache Zuneigung, der gute Wille oder
 die Liebe Gottes Allem zugekehrt ist, was natürlich oder sittlich gut
 ist, und zwar nach der Natur und der Stufe der Vollkommenheit desselben;
 er findet sonach Gefallen an der Umkehrung und Seligkeit Aller, die
 jedoch niemals eintreten wird.
 
-5)
-
-Gott nun, als Regent und Lenker der Welt, hat in sofern einen sich
+**5)** Gott nun, als Regent und Lenker der Welt, hat in sofern einen sich
 betätigenden Willen für die Seligkeit aller, als er ihnen ein
 freiwilliges Vermächtniss von dem Geschenk Christi und dem Leben und der
 Vergebung aller ihrer Sünden, so fern sie nicht undankbar dies
@@ -1256,15 +1241,11 @@ zurückweisen wollen, gemacht, und seinen Gesandten befohlen hat, diese
 Gnade der ganzen Welt anzubieten, und dieselbe zur Annahme derselben zu
 überreden. –
 
-6)
-
-Als Gesetzgeber indessen beschließt er, dass die, welche nicht umkehren
+**6)** Als Gesetzgeber indessen beschließt er, dass die, welche nicht umkehren
 wollen, sterben müssen; und als Richter will er, wenn der Tag der Gnade
 für sie vorüber ist, diesen Beschluß ausführen.
 
-7)
-
-So will er also die ungeheuchelte Bekehrung derer, die sich nie bekehren
+**7)** So will er also die ungeheuchelte Bekehrung derer, die sich nie bekehren
 werden; aber nicht als Despot nach ganz willkürlicher Bestimmung, oder
 als etwas, das unter allen Umständen geschehen soll, oder an dessen
 Ausführung er alle seine Macht setzen will. Es steht in der Macht eines
@@ -1314,8 +1295,6 @@ dass keiner leben soll, als die, welche sich bekehren, und wie ein
 Richter Freude hat an der Gerechtigkeit, und seinen Haß gegen die Sünde
 an den Tag legt, wenn er sich auch keineswegs über das Elend freuen
 kann, welches die Sünder übe sich selbst gebracht haben.
-
-2)
 
 Zweitens. In den Beweisen dieses Punktes kann ich sehr kurz sein, da ich
 voraussetze, dass ihr ihn schon glaubt.
@@ -1415,7 +1394,7 @@ Unterhalt, den du aufwandst, der Gier deines Schlundes genug zu tun; er
 gab dir jede Minute dieser Lebenszeit, die du in Eitelkeit, oder
 Trunkenheit, oder Weltlichkeit verschwendetest, und all diese Geduld und
 Gnade sollte dir nicht zeigen, dass er deine Verdammung nicht will? Kann
-die Lampe brennen ohne Oel? Können eure Häuser stehen ohne die Erde, die
+die Lampe brennen ohne Öl? Können eure Häuser stehen ohne die Erde, die
 sie trägt? eben so könnt ihr nicht eine Stunde leben ohne die
 Unterstützung Gottes. Und was war’s, dass er so lange dein Leben
 fristete, als nur deshalb, um zu sehen, wann du die Torheit deiner Wege
@@ -1475,12 +1454,8 @@ Wort, das ja am besten seine Meinung ausdrückt, oder glaubt wenigstens
 seinem Schwure; doch dies führet mich auf den vierten Satz.
 
 # Gott hat keine Gefallen an dem Tod des Gottlosen 
-===================================================
 
-**Der Herr hat durch seinen Schwur es uns bekräftigt, dass er keinen
-Gefallen an dem Tod des Gottlosen habe, sondern vielmehr, dass er sich
-bekehre und lebe, damit er den Menschen keinen Vorwand ließe, die
-Wahrheit davon zu bezweifeln.**
+**Der Herr hat durch seinen Schwur es uns bekräftigt, dass er keinen Gefallen an dem Tod des Gottlosen habe, sondern vielmehr, dass er sich bekehre und lebe, damit er den Menschen keinen Vorwand ließe, die Wahrheit davon zu bezweifeln.**
 
 Wenn ihr sein Wort zu bezweifeln wagt, so hoffe ich, wagt ihr nicht
 seinen Schwur zu bezweifeln. Wie Christus so feierlich beteuert hat,
@@ -1927,7 +1902,7 @@ gehorchen. Wenn der allmächtige Herr sein Wort spricht, gleich gehorchen
 ihm die Himmel, und was darin ist; aber wenn er nun einen Trunkenbold
 aus dem Schenkhause hervorruft, so will er nicht gehorchen; oder wenn er
 einen Sünder der weltlichen Fleischeslust ruft, sich zu verleugnen, sein
-Fleisch zu tödten, und sein Herz auf einen besseren Erbteil zu richten,
+Fleisch zu töten, und sein Herz auf einen besseren Erbteil zu richten,
 so will er nicht gehorchen.
 
 Trügest du einige Liebe in dir, du würdest die Stimme erkennen, und
@@ -2275,7 +2250,7 @@ wollen nach dem Fleisch und der Welt leben, und dennoch wollen sie nicht
 verdammet werden. Wißt ihr aber nicht, dass alle Straßen nach ihrem Ende
 führen, und dass Gott nach seinen gerechten Gesetzen bestimmt hat, dass
 ihr Buße tun müsst, oder verloren gehen! Der, welcher Gift nimmt, mag
-nur gerade heraussagen: „ich will mich nicht tödten,“ denn ein besseres
+nur gerade heraussagen: „ich will mich nicht töten,“ denn ein besseres
 Ende wird es doch nicht mit ihm nehmen, obgleich er es wegen der
 Süßigkeit des Zuckers, die damit verbunden war, liebte, und sich nicht
 überreden lassen wollte, dass es Gift sei, sondern im Gegenteile, dass
@@ -2285,7 +2260,7 @@ so, wenn ihr Säufer, Hurer, Weltlinge seid, oder nach dem Fleisch leben
 wollt, könnet ihr nur gerade heraussagen; „wir wollen verdammt werden,“
 denn dahin wird es ohne eure Umkehr doch kommen. Würdet ihr nicht die
 Torheit eines Diebes oder Mörders tadeln, der sagen wollte: „Ich will
-stehlen und tödten, aber dafür bestraft werden will ich nicht;“ da er
+stehlen und töten, aber dafür bestraft werden will ich nicht;“ da er
 doch weiß, dass wenn er das eine tut, der Richter im Gerichte schon
 dahin sehen wird, dass das andere geschehe! Wenn er sagen wollte: „ich
 will stehlen oder morden,“ so mag er nur geradezu sagen: „ich will
@@ -2557,11 +2532,11 @@ nicht nötig wäre.
 
 1.
 
-Einer sagt: wenn niemand selig werden sollte, als solche Bekehrte und
+**Einer** sagt: wenn niemand selig werden sollte, als solche Bekehrte und
 Heilige, von denen ihr redet, so würde der Himmel ganz leer sein. Da
 helfe Gott der großen Menge.
 
-Antwort. Wie es scheint, so glaubt ihr, dass Gott dies nicht weiß, oder
+*Antwort.* Wie es scheint, so glaubt ihr, dass Gott dies nicht weiß, oder
 ihm sei sonst nicht zu glauben. Messet nicht Alles nach euch selbst.
 Gott hat tausende und Millionen von seinen Heiligen; aber doch ist dies
 nur wenig in Vergleich mit der Welt, wie Christus selbst gesagt hat.
@@ -2570,31 +2545,31 @@ bedienet, die Christus gelehret hat. „Gehet ein durch die enge Pforte;
 denn die Pforte ist weit und der Weg ist breit der zur Verdammnis
 abführet, und ihrer sind viele die darauf wandeln. Und die Pforte ist
 enge und der Weg ist schmal, der zum Leben führet und wenig sind ihrer,
-die ihn finden. Lk. 13.22,23,24. Fürchte dich nicht du kleine Herde
+die ihn finden. ^[Lkukas 13,22-24] Fürchte dich nicht du kleine Herde
 (sagt Christus zu seinen Heiligen; denn es ist eures Vaters guter Wille,
-euch das Königreich zu geben. Lk. 12,13.)
+euch das Königreich zu geben.^[Lukas 12,13])
 
-Zweiter Einwurf. Ich bin überzeugt, dass, wenn solche, wie ich bin zur
+**Zweiter Einwurf**. Ich bin überzeugt, dass, wenn solche, wie ich bin zur
 Hölle gehen, so werden wir eine gar große Gesellschaft haben.
 
-Antwort. Und dies soll eine Beruhigung oder ein Trost für euch sein?
+*Antwort*. Und dies soll eine Beruhigung oder ein Trost für euch sein?
 Oder denkt ihr, dass ihr im Himmel nicht genug Gesellschaft haben
 werdet? Wollt ihr der Gesellschaft wegen zu Grunde gehen, oder wollt ihr
 glauben, dass Gott seine Drohungen nicht ausführen werde, weil es so
 viele Schuldige gibt? Das sind alles unverständige Einbildungen.
 
-Dritter Einwurf. Alle Menschen, selbst der beste von allen, sind Sünder.
+**Dritter Einwurf**. Alle Menschen, selbst der beste von allen, sind Sünder.
 
-Antwort. Aber nicht alle sind unbekehrte Sünder. Die Frommen leben nicht
+*Antwort*. Aber nicht alle sind unbekehrte Sünder. Die Frommen leben nicht
 in groben Sünden, und ihre Schwäche sind für sie ein Schmerz und eine
 Last, welche sie täglich loszuwerden sich sehnen, und darum beten und
 sich bestreben.
 
-Vierter Einwurf. Ich sehe nicht, dass die Frommen besser sind als andere
+**Vierter Einwurf**. Ich sehe nicht, dass die Frommen besser sind als andere
 Menschen; sie übervorteilen, bedrücken, und sind eben so habsüchtig als
 andere. –
 
-Antwort. So viel Heuchler es auch geben mag, dennoch steht es nicht so
+*Antwort*. So viel Heuchler es auch geben mag, dennoch steht es nicht so
 mit denen, die geheiligt sind. Gott hat tausend und zehntausend, die
 ganz anders sind, obgleich die boshafte Welt sie in Dingen anklagt, die
 sie niemals beweisen kann, und die nie in ihre Herzen kommen.
@@ -2602,10 +2577,10 @@ Gemeiniglich beschuldigen sie sie der Herzenssünden, die niemand als
 Gott sehen kann, weil sie ihnen keine solche Gottlosigkeit, als deren
 sie selbst schuldig sind, nachweisen können.
 
-Fünfter Einwurf. Ich bin kein Hurer, kein Säufer, kein Bedrücker; wie
+**Fünfter Einwurf**. Ich bin kein Hurer, kein Säufer, kein Bedrücker; wie
 könnt ihr mich deshalb auffordern, mich zu bekehren?
 
-Antwort. Als wäret ihr nicht nach dem Fleisch geboren, und hättet nicht
+*Antwort*. Als wäret ihr nicht nach dem Fleisch geboren, und hättet nicht
 nach dem Fleisch gelebt so gut, als andere! Ist es nicht eine eben so
 große Sünde, als irgend eine von diesen, einen irdischen Sinn zu haben,
 die Welt mehr als Gott zu lieben, und ein ungläubiges, undemütiges Herz
@@ -2615,10 +2590,10 @@ eben so an der Welt kleben, eben so Sklaven ihres Fleisches, eben so
 Gott entfremdet und von dem Himmel abgekehrt sind, als andere in ihren
 schimpflicheren und bekannteren Sünden.
 
-Sechster Einwurf. Aber ich tue niemanden ein Leid, tue keinem Unrecht;
+**Sechster Einwurf**. Aber ich tue niemanden ein Leid, tue keinem Unrecht;
 warum sollte mich denn Gott verdammen?
 
-Antwort. Ist es nicht ein Unrecht, den Herrn, der dich gemacht hat, und
+*Antwort*. Ist es nicht ein Unrecht, den Herrn, der dich gemacht hat, und
 das Werk, für welches du in die Welt gekommen bist, zu vernachlässigen
 und das Geschöpf dem Schöpfer vorzuziehen, und die Gnade nicht zu
 achten, die dir täglich angeboten wird? Das ist eben der Abgrund deiner
@@ -2627,16 +2602,16 @@ nicht, dass sie tot sind. Wenn du nur einmal lebendig würdest, so
 würdest du mehr Übel in dir selbst sehen und dich wundern, dass du es so
 leicht damit nahmst.
 
-Siebenter Einwurf. Ich glaube, ihr wollt die Menschen unter dem Vorwande
+**Siebenter Einwurf**. Ich glaube, ihr wollt die Menschen unter dem Vorwande
 sie zu bekehren, wahnsinnig machen; es ist schon genug, Sündern den Kopf
 zu verdrehen, dass sie über Dinge denken, die ihnen zu hoch sind.
 
-Antwort 1. Könnet ihr wahnsinniger werden, als ihr schon seid, oder kann
+*Antwort 1*. Könnet ihr wahnsinniger werden, als ihr schon seid, oder kann
 es einen gefährlicheren Wahnsinn geben als diesen, eure ewige Wohlfahrt
 zu vernachlässigen, und mit Willen euch selbst in’s Verderben zu
 stürzen?
 
-Antwort 2. Der Mensch ist nie bei Verstande, bis er bekehrt ist; er
+*Antwort 2*. Der Mensch ist nie bei Verstande, bis er bekehrt ist; er
 kennt nicht Gott, kennt nicht die Sünde, noch Christus, noch die Welt,
 noch sich selbst, noch seinen Beruf auf der Erde, so dass er diesem zu
 genügen sich anschickt, bis er bekehrt ist. Die Schrift sagt, dass die
@@ -2647,14 +2622,14 @@ sich zu bekehren. Ist es wohl eine weise Welt, wenn der Mensch Gott
 ungehorsam sein will und in die Hölle läuft, aus Furcht den Verstand zu
 verlieren?
 
-Antwort 3. Was ist denn in dem Werke, zu welchem Christus euch aufruft,
+*Antwort 3*. Was ist denn in dem Werke, zu welchem Christus euch aufruft,
 das einem Menschen um den Verstand bringe sollte? Ist es die Liebe
 Gottes, das Anrufen desselben, das heilsame Nachdenken über die künftige
 Herrlichkeit, das Verlassen unserer Sünden, die gegenseitige Liebe und
 die Freude am Dienste Gottes? Sind das Dinge, die den Menschen
 wahnsinnig zu machen vermögen?
 
-Antwort 4. Und was da betrifft, dass ihr sagt, dass diese Gegenstände zu
+*Antwort 4*. Und was da betrifft, dass ihr sagt, dass diese Gegenstände zu
 hoch für uns sind, so klaget ihr Gott selbst an, der dies zu unserm
 Geschäfte gemacht, uns sein Wort gegeben und empfohlen hat, darüber Tag
 und nacht nachzudenken. Sind die Gegenstände, für welche wir gemacht
@@ -2665,18 +2640,18 @@ Fleisch und Erde umgehen dürfen. Ist der Himmel zu hoch für euch, um
 daran zu denken und dafür Sorge zu tragen, so wird er auch zu hoch für
 euch sein, um ihn zu besitzen.
 
-Antwort 5. Wenn Gott bisweilen zulassen sollte, dass einige
+*Antwort 5*. Wenn Gott bisweilen zulassen sollte, dass einige
 schwachköpfige Personen durch Gedanken an die ewigen Dinge verwirrt
 werden, so kommt dies, weil sie sie mißverstehen und ohne Führer gehen,
 und soll es eines von beiden sein, so will ich lieber in der Lage eines
 solchen, als eines wahnsinnigen, unbekehrten Weltkindes sein, da seinen
 Wahnsinn für Weisheit hält.
 
-Achter Einwurf. Ich denke nicht, dass Gott sich so sehr um das, was die
+**Achter Einwurf**. Ich denke nicht, dass Gott sich so sehr um das, was die
 Menschen denken oder sprechen, bekümmere, dass man daraus eine so große
 Sache machen sollte.
 
-Antwort. Es scheint, dass ihr das Wort Gottes für falsch achtet, und was
+*Antwort*. Es scheint, dass ihr das Wort Gottes für falsch achtet, und was
 wollt ihr dann glauben? Doch eure eigene Vernunft möge euch besser
 lehren, wenn ihr der Schrift nicht glaubet; denn ihr seht, dass Gott es
 mit uns nicht so obenhin genommen, sondern sich herabgelassen hat, uns
@@ -2709,16 +2684,16 @@ gemacht haben; und nun sollte er gar nicht auf seine Hände sehen, noch
 sich darum bekümmern, wie er denkt oder lebt? Das widerstreitet aller
 Vernunft.
 
-Neunter Einwurf. Es war eine bessere Welt, als die Menschen nicht so
+**Neunter Einwurf**. Es war eine bessere Welt, als die Menschen nicht so
 viel Lärmens von der Religion machten.
 
-​1. Antwort. Es ist immer Sitte gewesen, die vergangene Zeit zu preisen;
+*​1. Antwort*. Es ist immer Sitte gewesen, die vergangene Zeit zu preisen;
 die Welt, von der ihr redet, ist gewohnt zu sagen, dass die Welt besser
 in den Tagen ihrer Vorväter gewesen, und so machte man es eben zur Zeit
 der Vorväter. Es ist dies eine alte Sitte, weil wir die Übel unserer
 eigenen Zeiten fühlen, aber nicht sehen was vor uns war.
 
-​2. Vielleicht sprecht ihr, wie ihr denkt. Denn die Weltkinder denken,
+*​2.* Vielleicht sprecht ihr, wie ihr denkt. Denn die Weltkinder denken,
 die Welt ist am besten, wenn es ihren Sinnen angenehm ist, und wenn sie
 die meisten Freuden und weltliches Ergötzen haben; auch zweifle ich
 nicht, dass der Teufel, eben so gut wie ihr, sagen würde, dass die Welt
@@ -2727,11 +2702,11 @@ Beunruhigung. Aber die Welt ist am besten dann, wenn Gott am meisten
 geliebt, geehrt und ihm gehorcht wird; oder wie wollt ihr sonst wissen,
 ob die Welt gut oder böse ist, als eben hiernach?
 
-Zehnter Einwurf. Es gibt so viele Wege und Religionen, dass wir nicht
+**Zehnter Einwurf**. Es gibt so viele Wege und Religionen, dass wir nicht
 wissen, welcher wir uns anschließen sollen; und so wollen wir lieber
 bleiben, wo wir sind.
 
-Antwort. Weil es der Weg e so viele gibt, wollt ihr lieber dem Wege
+*Antwort*. Weil es der Weg e so viele gibt, wollt ihr lieber dem Wege
 folgen, von dem ihr versichert seid, dass er schlecht ist? Keiner ist
 weiter vom Wege ab, als weltliche, fleischliche, unbekehrte Sünder; denn
 sie irren nicht nur, wie einige Sekten in dieser oder jener Meinung,
@@ -2746,26 +2721,26 @@ wüßten, und andere, die untreu wären, würdet ihr es von einem der
 Übrigen gut aufnehmen, wenn sie deshalb träge sein und ihren Dienst
 nicht tun wollten, weil sie sähen, dass die anderen so schlecht wären?
 
-Elfter Einwurf. Ich sehe nicht, dass es denen, die gottesfürchtig sind,
+**Elfter Einwurf**. Ich sehe nicht, dass es denen, die gottesfürchtig sind,
 besser geht, als anderen Menschen. Sie sind eben so arm und in noch
 größeren Bedrängnissen, als andere.
 
-Antwort. Und vielleicht in noch viel mehrern, wenn Gott sieht, dass es
+*Antwort*. Und vielleicht in noch viel mehrern, wenn Gott sieht, dass es
 ihnen frommt. Sie sehen irdische Wohlfahrt nicht für ihren Lohn an; sie
 haben ihren Schatz und ihre Hoffnungen in einer anderen Welt aufgestellt,
 oder sie sind nicht wahrhafte Christen. Je weniger sie haben, desto mehr
 steht ihnen noch bevor; und sie sind zufrieden, bis dahin zu warten.
 
-Zwölfter Einwurf. Wenn ihr Alles gesagt habt, was ihr könnt, so bin ich
+**Zwölfter Einwurf**. Wenn ihr Alles gesagt habt, was ihr könnt, so bin ich
 entschlossen in guter Hoffnung zu bleiben, mich Gottes zu getrösten, und
 so gut, als ich kann, zu tun, ohne viel Lärmens davon zu machen.
 
-​1. Antwort. Heißt das tun, so gut als ihr könnt, wenn ihr nicht zu Gott
+*​1. Antwort*. Heißt das tun, so gut als ihr könnt, wenn ihr nicht zu Gott
 umkehren wollt, sondern euer Herz sich seinem heiligen und fleißigen
 Dienste widersetzet? Es ist so gut, als ihr wollt; fürwahr, aber dies
 eben ist euer Elend.
 
-​2. Mein Wunsch ist, auf Gott hoffen und vertrauen; sagt aber, was ist
+*​2. Antwort* Mein Wunsch ist, auf Gott hoffen und vertrauen; sagt aber, was ist
 es denn, das ihr hoffen wollet? Ist es selig und geheiligt zu werden?
 Dazu hat Gott euch sein Versprechen gegeben, und deshalb hoffet darauf
 und wanket nicht. Aber wenn ihr hofft ohne Bekehrung und heiligem Leben
@@ -2792,9 +2767,9 @@ euch euren Lohn auszahlen und euch retten, wenn sie kann. Hattet ihr
 nicht eine bessere Welt, nach der ihr zuerst sehen musstet, und war euch
 nicht empfohlen, zuerst das Reich Gottes und seine Gerechtigkeit zu
 suchen, und euch versprochen, dass die anderen Dinge euch dann zufallen
-sollten? Matt. 6,33. War euch nicht gesagt, „dass die Gottseligkeit zu
+sollten? ^[Matthäus 6,33]. War euch nicht gesagt, „dass die Gottseligkeit zu
 allen Dingen nütze ist, und die Verheißung dieses und des zukünftigen
-Lebens hat.“ 1 Tim. 4,8. Hinderten euch die Sünden der Frommen? Ihr
+Lebens hat.“ ^[1. Timotheus 4,8] Hinderten euch die Sünden der Frommen? Ihr
 hätte lieber desto mehr vorsichtig sein und durch ihren Fall gelernt
 haben sollen, euch zu bewahren, desto sorgsamer und nicht desto
 sorgloser zu sein. Hinderten euch die verschiedenen Meinungen der Welt?
@@ -2802,7 +2777,7 @@ Ach die Schrift, die war eure Norm, und diese lehrt nur einen Weg, und
 das war der richtige Weg. Wenn ihr ihm gefolgt wäret, so eben und leicht
 er ist, so würdet ihr niemals gescheitert sein. Werden Antworten dieser
 Art euch nicht über euch irre machen und beschämen? Werden sie es nicht,
-so hat Gott welche, die es werden. Wenn er jenen Mann frägt Matt. 22,12:
+so hat Gott welche, die es werden. Wenn er jenen Mann frägt ^[Matthäus 22,12]:
 „Freund, wie kommst du hierher, und hast kein hochzeitliches Kleid an?“
 das heißt, was tust du in meiner Kirche unter erklärten Christen, ohne
 ein heiliges Herz und Leben? was für eine Antwort gab er? Der Text sagt:
@@ -2848,7 +2823,7 @@ lieber in dem Zustande derer, die so tun, sterben, als in dem anderen?
 Wenn ihr heute sterben solltet, würdet ihr nicht lieber in dem Zustande
 eines Bekehrten, als eines Unbekehrten sterben? nicht lieber in dem
 eines heiligen und himmlischen, als eines fleischlichen, irdischen
-Menschen sterben? Würdet ihr nicht sagen wie Bileam (Num. 3,10.): „Meine
+Menschen sterben? Würdet ihr nicht sagen wie Bileam: ^[4.Mose 3,10] „Meine
 Seele müsse sterben des Tods der Gerechten, und mein Ende werde wie
 dieser Ende?“ Und warum wollt ihr nicht jetzt schon so gesinnt sein, wie
 ihr alsdann wünschen werdet, gesinnt zu sein? Früher oder später müsst
@@ -2870,7 +2845,7 @@ seid. Ach, dass ihr es für ein größeres Vergnügen achtet, in törichten
 Spielen und Ergötzungen zu leben und euer Fleisch zu erfreuen, als in
 gläubigen Betrachtungen der himmlischen Herrlichkeit, in Gerechtigkeit,
 Friede und Freude in dem heiligen Geiste zu leben, worin der Stand der
-Gnade besteht. Röm. 14,17. Wenn es ein größeres Vergnügen für euch ist,
+Gnade besteht. ^[Römer 14,17]. Wenn es ein größeres Vergnügen für euch ist,
 an eure Ländereien und euer Erbteil (wenn ihr Herren des ganzen Landes
 wäret) zu denken, als es für ein Kind ist, um Stecknadeln zu spielen;
 wie sollte es euch dann nicht größere Freude machen an das Himmelreich
@@ -2905,7 +2880,7 @@ denn durch Trauern wird das Herz gebessert. Das Herz der Weisen ist im
 Klaghause, und das Herz der Narren im Hause der Freuden. Es ist besser
 hören das Schelten der Weisen, denn den Gesang der Narren. Denn das
 Lachen der Narren ist wie das Krachen der Dornen unter den Töpfen.
-Predig. Salom. 2,2. und 7,3-7. Alle Freude an fleischlichen Dingen ist
+^[Prediger 2,2. und 7,3-7]. Alle Freude an fleischlichen Dingen ist
 gleich dem Kratzen eines Mannes, der die Krätze hat; es ist seine
 Krankheit, welche ihn dennoch begehren macht, und ein verständiger
 Mensch will lieber ohne sein Ergötzen, als mit seiner Krätze geplagt
@@ -2960,7 +2935,7 @@ ihr darum einen Menschen treffet, der vom Wege abgekommen ist, so könnet
 ihr ihm lange zurufen, dass er wieder umkehren möge, wenn er euch nicht
 glauben will, dass er aus dem Wege ist.
 
-​4. Sie sind Sclaven ihres Fleisches geworden, und in die Welt
+​4. Sie sind Sklaven ihres Fleisches geworden, und in die Welt
 versunken, um ihm recht Vorschub zu schaffen. Ihre Lüste, Leidenschaften
 und Begierden haben sie ganz verwirrt, und so durchaus die Oberhand
 gewonnen, dass sie sich nicht Rat wissen, weder, wie sie dieselben
@@ -3041,17 +3016,14 @@ verdammt werden. Dies führt mich auf den letzten Satz.
 
 # Der Mensch ist an seiner Verdammnis selbst schuld 
 
-**Wenn nach allem diesem die Menschen nicht umkehren wollen, so ist es
-nicht Gottes Schuld, wenn sie verdammt werden, sondern ihre eigene;
-nämlich ihre Halsstarrigkeit. Sie sterben, weil sie wollen, das heißt;
-weil sie nicht umkehren wollen.**
+**Wenn nach allem diesem die Menschen nicht umkehren wollen, so ist es nicht Gottes Schuld, wenn sie verdammt werden, sondern ihre eigene; nämlich ihre Halsstarrigkeit. Sie sterben, weil sie wollen, das heißt; weil sie nicht umkehren wollen.**
 
 Wenn ihr zur Hölle gehen wollet, wer mag dem wehren! Gott selbst macht
 sich frei von eurem Blute; es soll an ihm nicht liegen, wenn ihr
 verloren gehet. Ein nachlässiger Prediger mag es auf sich nehmen, die,
 welche euch antreiben oder in euren Sünden euch nicht hindern, mögen es
 auf sich nehmen; aber seid gewiss, an Gott liegt es nicht. Der Herr
-sprach, als er seinen unfruchtbaren Weinberg betrachtete: Jes. 5,3.4.
+sprach, als er seinen unfruchtbaren Weinberg betrachtete: ^[Jesaja 5,3-4]
 „Nun richtet zwischen mir und meinem Weinberge. Was sollte man noch mehr
 tun an meinem Weinberge, das ich nicht getan habe an ihm?“ da er ihn in
 einem fruchtbaren Erdreiche angelegt, ihn gehegt, die Steine
@@ -3063,7 +3035,7 @@ vollkommenes Gesetz gegeben. Als ihr dies gebrochen und euch selbst ins
 Verderben gestürzt hattet, hatte er Erbarmen mit euch und sandte durch
 ein Wunder seiner sich herablassenden Gnade euch seinen Sohn für euch zu
 sterben und ein Opfer für eure Sünden zu werden, denn Gott war in
-Christus und versöhnte die Welt mit ihm selber. (2 Kor. 5,19.)
+Christus und versöhnte die Welt mit ihm selber. ^[(2. Korinther 5,19]
 
 Der Herr Jesus Christus hat sich selbst euch zum Eigentum geschenkt und
 ewiges Leben mit ihm unter der Bedingung, dass ihr dies annehmen und
@@ -3088,14 +3060,14 @@ dich deinem Gott ergeben und deinem Erlöser den Besitz deiner Seele
 zugestehen? Wann wird dies einmal geschehen? Solche Unterhandlungen hat
 er mit dir gepflogen; und da du es noch auf schobst, wardst du
 angetrieben zu eilen und Gott rief dir zu „heute wie gesagt ist, heute
-verstecket eure Herzen nicht.“ (Hebr. 4,7.) Warum wollt ihr nicht jetzt
+verstecket eure Herzen nicht.“ ^[Hebräer 4,7] Warum wollt ihr nicht jetzt
 ohne irgend einen Verzug? Das Leben ist euch vor Augen gestellt, die
 Freuden des Himmels sind im Evangelium euch geöffnet; die
 Zuverlässigkeit derselben ist euch klar dargetan; die Gewissheit der
 ewigen Martern der Verdammten ist euch erklärt; außer dass ihr etwa
 Himmel und Hölle selbst sehen wolltet, was könnt ihr sonst mehr
 begehren? Christus ist so zu sagen euch gekreuzigt vor die Augen
-aufgestellt. (Gal. 3,1.) Es ist euch hundert Mal gesagt worden, dass ihr
+aufgestellt. ^[Galater 3,1] Es ist euch hundert Mal gesagt worden, dass ihr
 verlorne Menschen seid, bis ihr zu ihm kommet, eben so oft ist euch das
 Übel der Sünde, die Eitelkeit der Welt und aller der Vergnügungen und
 der Güter, welche sie darbieten kann, die Kürze und Ungewissheit eures
@@ -3144,15 +3116,15 @@ konntet Christus zu eurem Herrn und Heiland, zu eurem Haupt und Meister
 so gut als andere haben, aber ihr wolltet nicht, weil ihr euch nicht
 krank genug fühltet, um zum Arzt eure Zuflucht zu nehmen und weil ihr
 eure Krankheit nicht entbehren konntet. In euren Herzen sprecht ihr wie
-jene Empörer: Lk. 19,14. „Wir wollen nicht, dass dieser über uns
+jene Empörer: ^[Lukas 19,14]. „Wir wollen nicht, dass dieser über uns
 herrsche.“ Christus wollte euch unter die Flügel seines Heils
-versammeln, aber ihr wolltet nicht. Matt. 22,37. Welch ein Verlangen
+versammeln, aber ihr wolltet nicht. ^[Mattäus 22,37]. Welch ein Verlangen
 nach eurer Wohlfahrt hat der Herr in seinem heiligen Worte ausgedrückt!
 Mit welcher Teilnahme stand er bei euch und sagte: „O dass mein Volk auf
-mich hörte und in meinen Wegen wandelte!“ Psalm. 18,13. 76,13. „Ach dass
+mich hörte und in meinen Wegen wandelte!“ ^[Psalm 18,13] ^[Psalm 76,13]. „Ach dass
 sie ein solches Herz hätten mich zu fürchten und zu halten alle meine
 Gebote ihr Leben lang, auf dass es ihnen wohl ginge und ihren Kindern
-ewiglich.“ 5.B.Mos. 5,29. O dass sie weise wären und vernähmen solches,
+ewiglich.“ ^[5. Mose 5,29] O dass sie weise wären und vernähmen solches,
 dass sie verständen, was ihnen hernach begegnen wird. Er würde euer Gott
 geworden sein und Alles für euch getan haben, was eure Seelen nur
 wünschen konnten, aber ihr liebtet die Welt und euer Fleisch mehr als
@@ -3182,19 +3154,19 @@ Ein Ochse kennet seinen Herrn und ein Esel die Krippe seines Herrn, aber
 Israel kennet es nicht, und mein Volk vernimmt es nicht. O wehe des
 sündigen Volks, des Volkes von großer Missetat, des boshaften Saamens,
 der schändlichen Kinder, die den Herrn verlassen, den Heiligen in Israel
-lästern, weichen zurück.“ ^[Jes. 1,2,3,4.] Dankest du also dem Herrn
+lästern, weichen zurück.“ ^[Jesaja 1,2-4.] Dankest du also dem Herrn
 deinem Gott du toll und töricht Volk? Ist er nicht dein Vater und dein
 Herr? Ist es nicht er allein, der dich gemacht hat und bereitet hat?
-(5.B. Mos. 32,6.) Als er sah, dass ihr ihn verließet, eben um gar nichts
+^[5. Mose 32,6] Als er sah, dass ihr ihn verließet, eben um gar nichts
 und euch abwandtet von eurem Herrn und eurem Leben, um der Spreu und den
 bunten Federn dieser Welt nachzusetzen, da mahnte er euch wegen eurer
-Torheit und forderte euch zu einem vorteilhafteren Berufe auf. Jesaias
-55,1-3. Warum zählt ihr Geld dar, da kein Brod ist und eure Arbeit, da
+Torheit und forderte euch zu einem vorteilhafteren Berufe auf. ^[Jesaja
+55,1-3] Warum zählt ihr Geld dar, da kein Brod ist und eure Arbeit, da
 ihr nicht satt von werden könnet? Hört mir doch zu und esset das Gute,
 so wird eure Seele in Wollust fett werden. Neiget eure Ohren her, und
 kommt her zu mir, höret, so wird eure Seele leben; denn ich will mit
 euch einen ewigen Bund machen, nämlich die gewissen Gnaden Davids. Und
-(V. 6,7.) heißt es: Suchet den Herrn weil er zu finden ist; rufet ihn an
+^[Jesaja 55,6-7] heißt es: Suchet den Herrn weil er zu finden ist; rufet ihn an
 weil er nahe ist. Der Gottlose lasse ab von seinem Wege und der
 Übeltäter von seinen Gedanken und bekehre sich zum Herrn, so wird er
 sich seiner erbarmen; und zu unserm Gott, denn bei ihm ist viel
@@ -3203,20 +3175,19 @@ abgenötigt, da er euch wegen eurer Halsstarrigkeit und Hartnäckigkeit
 zuschreien musste? Staune o Himmel darüber und erschrick. „Denn mein
 Volk tut eine zwiefache Sünde, mich die lebendige Quelle verlassen sie
 und machen sich selbst ausgehauene Brunnen, die löchrigt sind und kein
-Wasser haben. (Jerem. 2,13.) Oftmals hat Christus an euch die Einladung
+Wasser haben. ^[Jeremiah 2,13] Oftmals hat Christus an euch die Einladung
 ergehen lassen „wer dürstet, der komme und wer da will, der nehme das
-Wasser des Lebens umsonst.“ (Offenb. Joh. 22,17.) Aber ihr nötigt ihn
+Wasser des Lebens umsonst.“ ^[Offenbarung 22,17] Aber ihr nötigt ihn
 nach allen diesen Anerbietungen über euch zu klagen; sie wollen nicht zu
-mir kommen, dass sie das Leben haben: (Johan. 5,40.) Er hat euch
+mir kommen, dass sie das Leben haben: ^[Johannes 5,40] Er hat euch
 eingeladen zu seinem Gastmahle in dem Reiche der Gnade und ihr habt euch
 mit euren Aeckern, eurem Viehstande, euren weltlichen Geschäften
 entschuldigt und da ihr nicht kommen wolltet sagtet ihr, ihr könntet
 nicht und habt ihn zu dem Urteil gezwungen, dass ihr niemals sein Mahl
-schmecken sollet. (Lk. 14,15-25.) Wer ist nun Schuld als ihr selbst?
+schmecken sollet. ^[Lukas 14,15-25] Wer ist nun Schuld als ihr selbst?
 was könnt ihr anders als die Hauptursache eurer Verdammnis angeben, als
 euren eignen Willen? ihr wolltet verdammt werden. Die ganze Sache ist
-offen dargelegt in den Sprüchwörtern Salomonis Kap. 1. V. 20,. bis zu
-Ende. „Die Weisheit klaget draußen und läßt sich hören auf den Gassen.
+offen dargelegt in den Sprüchen Salomos ^[Sprüche 1,20-33]„Die Weisheit klaget draußen und läßt sich hören auf den Gassen.
 Sie rufet in der Tür am Tor vorne unter dem Volke; sie redet ihre Worte
 in der Stadt wie lange wollt ihr Albernen albern sein? Und die Spötter
 Lust zur Spötterei haben? Und die Ruchlosen die Lehre hassen? Kehret
@@ -3231,7 +3202,7 @@ aber ich werde nicht antworten, sie werden mich frühe suchen und nicht
 finden. Darum, dass sie hasseten die Lehre und wollten des Herrn Furcht
 nicht haben; wollten meines Rates nicht und lästerten alle meine Strafe.
 So sollen sie essen von den Früchten ihres Wesens und ihres Rates satt
-werden. Das die Albernen gelüstet, tödtet sie, und der Ruchlosen Glück
+werden. Das die Albernen gelüstet, tötet sie, und der Ruchlosen Glück
 bringet sie um. Wer aber mir gehorchet wird sicher bleiben und genug
 haben, und kein Unglück fürchten.“ Ich hielt für das Beste den ganzen
 Text ausführlich euch anzuführen, weil er so vollständig den Grund der
@@ -3457,7 +3428,7 @@ eine Kleinigkeit selbst ins Feuer oder Wasser, oder in eine Kohlengrube
 zu werfen und so sein Leben zu zerstören; und doch läßt der Mensch sich
 anlocken sich selbst in die Hölle zu stürzen. Wenn euer leibliches Leben
 in eurer Hand stände, so dass ihr nicht sterben solltet, bis ihr euch
-selbst tödtet, wie lange würden die meisten von euch leben? Und
+selbst tötet, wie lange würden die meisten von euch leben? Und
 gleichwohl, da euer ewiges Leben unter Gottes Vorstand in so fern in
 eurer Hand ist, dass ihr nicht zu Grunde gehen könnt, wenn ihr euch
 nicht selbst zu Grunde richtet; wie wenige von euch wollen ihrem eigenen
@@ -3513,7 +3484,7 @@ Dagegen, was den Menschen betrifft, so wissen wir, dass sein Verstand
 umfinstert, sein Wille verderbt ist, dass seine Leidenschaften ihn so
 mit sich fortreißen, dass er vermöge seiner Torheit und Verderbteit
 selbst an seiner eigenen Zerstörung zu arbeiten fähig ist. Wenn ihr ein
-Lamm getödtet auf dem Wege liegen sähet, würdet ihr eher glauben, dass
+Lamm getötet auf dem Wege liegen sähet, würdet ihr eher glauben, dass
 das Schaaf, oder der Hund, oder der Wolf der Täter davon sei, wenn diese
 beiden dabei ständen? Wenn ihr ein Haus erbrochen und die Leute darin
 gemordet fändet, würdet ihr lieber auf den Fürsten oder den Richter, der
@@ -3794,10 +3765,10 @@ euer Leben einstehen; aber wenn ihr dies nicht tun wollt, so seid ihr
 ein Mann des Tods. Was würdet ihr von einem solchen denken, den der Arzt
 und alle Freunde, die er hat nicht überreden könnten, einige Arznei zu
 nehmen, um sein Leben zu retten oder ein oder zwei giftige Dinge zu
-vermeiden, die ihn tödten würden? Dies ist aber bei euch der Fall. So
+vermeiden, die ihn töten würden? Dies ist aber bei euch der Fall. So
 weit es auch mit euch in der Sünde gekommen ist, kehret nur jetzt noch
 um und kommet zu Christus und nehmet seine Arzneien, und eure Seelen
-sollen leben. Werfet durch Buße eure tödtlichen Sünden von euch und
+sollen leben. Werfet durch Buße eure tödlichen Sünden von euch und
 kehret nie wieder zu dem giftigen Auswurf zurück und ihr sollt
 wohlbehalten sein. Freilich wenn es euer Leib wäre, womit ich zu tun
 hätte, so möchte ich wohl zum Teil wissen, was ich für euch tun könnte.

@@ -297,7 +297,7 @@ jeden ein, so dass eines Menschen Grundsätze und Neigungen ihm zum
 Verderben werden. O wie wird er triumphieren, wenn es ihm gelingt, einen
 Prediger zur Trägheit, zur Untreue, zur Habsucht zu verführen, dass er
 der Gemeinde ein Ärgernis gibt und der Feind sagen kann: ,Da seht eure
-heiligen Priester, seht ihre Strenge und wohin sie führt!' Er wird sich
+heiligen Pastoren, seht ihre Strenge und wohin sie führt!' Er wird sich
 sogar gegen Christus rühmen und sagen: ,Das sind also deine Kämpfer! Ich
 kann machen, dass deine ersten Diener dich schmähen, dass deine eigenen
 Haushalter untreu werden.' Wie wird er euch höhnen, wenn er euch zur
@@ -7386,7 +7386,7 @@ Herzen unter euch, die den Vortrab bilden wollen? Betet alle, dass
 während dieser Pfingstzeit der Geist sagen möge: “Sondert mir aus
 Barnabas und Saulus für das Werk.” Vorwärts! In Gottes Namen vorwärts!
 
-Entschidenheit tut not
+Entschiedenheit ist nötig
 ===========================
 
 Eine Sache ist entweder wahr oder sie ist falsch — dieser Satz ist

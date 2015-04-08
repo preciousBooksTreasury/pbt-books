@@ -6,7 +6,6 @@ license: Gemeinfrei
 originalTitle: Student Lectures
 originalAuthor: C.H. Spurgeon
 img: spurgeon-lectures.jpg
-isbn: 978-1-326-11006-2
 coverStripe: "Spurgeons 'Ratschläge für Prediger' besteht aus einer Reihe von Predigten, 
 mit denen er die junger Pastoren seines Seminars das Predigen lehren wollte.
 Das Buch erhält sehr viele praktische Ratschläge,
@@ -14,4 +13,7 @@ und doch liegt der Schwerpunkt auf den geistlichen Aspekten.
 Spurgeon zeigt deutlich welche Verantwortung und welchen Charakter ein Prediger haben muss,
 um das Evangelium unseres Herrn Jesu Christus zu verkündigen."
 target-sets:
-    - default
+  - default
+targets:
+  lulu-a5-10pt:
+    isbn: 978-1-326-11006-2

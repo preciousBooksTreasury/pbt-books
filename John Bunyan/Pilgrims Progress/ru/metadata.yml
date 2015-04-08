@@ -1,0 +1,11 @@
+---
+title: Путешествие пилигрима
+latinTitle: pilgrims-progress-ru
+author: Джон Беньян
+license: Gemeinfrei/Public Domain
+originalTitle: The Pilgrims Progress
+originalAuthor: John Bunyan
+img: pilgrim.jpg
+coverStripe: ""
+target-sets:
+    - default
