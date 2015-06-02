@@ -9,7 +9,7 @@ sich bekehre von seinem Wesen und Leben. So bekehret Euch doch nun von
 Eurem bösen Wesen. Warum wollt Ihr sterben, Ihr vom hause Israel?
 
 Mir, wie vielen anderen Menschen, ist es stets ein erstaunliches Wunder
-gewesen, in der heiligen Schrift zu lesen, wie wenige selig werden, und
+gewesen, in der heiligen Schrift zu lesen, wie wenige gerettet werden, und
 dass die Mehrzahl auch der Berufenen von dem Himmelreiche ewig
 ausgeschlossen seien, und mit den Teufeln in ewigem Feuer gequält
 werden. Die Ungläubigen wollen es nicht glauben, wenn sie’s lesen, darum
@@ -251,7 +251,7 @@ das Übel der Sünde vollkommen erkannt hast; und das Übel wieder kannst
 du nicht vollkommen erkennen, ehe du nicht vollständig erkennst: 
 1. die Vortrefflichkeit der Seele, welche sie entstellt; 
 2. die Vortrefflichkeit der Heiligkeit, welche sie befleckt; 
-3. dieVernünftigkeit und Vortrefflichkeit des Gesetzes, das sie verletzt; 
+3. die Vernünftigkeit und Vortrefflichkeit des Gesetzes, das sie verletzt; 
 4. die Vortrefflichkeit der Herrlichkeit, die sie verachtet; 
 5. die Vortrefflichkeit und das Amt der Vernunft, die sie mit Füßen tritt; 
 6. endlich die unendliche Vortrefflichkeit, Allmacht und Heiligkeit Gottes,
@@ -579,9 +579,9 @@ zu der wahren Richtung seines Herzens und Lebens, und darum steht er
 wieder auf, und bejammert es, und wagt nicht mit Willen in irgend einer
 erkannten Sünde zu leben. Da gibt es nichts so Wertes in dieser Welt für
 ihn, das er nicht aufgeben könnte für Gott und sich dessen entschlagen
-für ihn und die Hoffnungen der Herrlichkeit. All dies könnt ihr finden:
-Col. III, 1,2,3,4,5. Matt. VI, 20,33. Lk. XVIII, 22,23,29. und XIV,
-18,24,26,27. Röm. VIII, 13. Gal. V, 24. Lk. XII, 21.
+für ihn und die Hoffnungen der Herrlichkeit. 
+^[Kolosser 3,1-5] ^[Matthäus 6,20.33] ^[Lukas 18,22.23.29] ^[Lukas 14,18.24.26.27] ^[Römer 8,13] ^[Galater 5,24]
+^[Lukas 12,21]
 
 ​3) Die Seele eines Unbekehrten hat weder je das Geheimniss der Erlösung
 erkannt und gekostet, noch einen angebotenen Heiland dankbar angenommen,
@@ -607,9 +607,9 @@ Erlösung anerkannt. Mit einem Worte, Christus wohnt in seinem Herzen
 durch den Glauben, und das Leben, das er jetzt lebt, besteht durch den
 Glauben an den Sohn Gottes, der ihn geliebt und sich selbst für ihn
 dahingegeben hat; ja, nicht sowohl er lebt, als vielmehr Christus in
-ihm. Hierfür seht nach Hiob I, 11,12. und III, 19,20. Röm. VIII, 9.
-Philipp. III, 7,8,9,10. Gal. II, 20. Hiob XV. 2,3.4. I Kor. 1,20. u.
-II,2.
+ihm. ^[Hiob 1,11.12] ^[Hiob 3,19,20]  ^[Römer 8, 9]
+^[Philipper 3,7.8.9.10]  ^[Galater 2, 20]  ^[Hiob 15 2,3.4] ^[1. Korinther 1,20] ^[1.Korinther 2,2]
+
 
 Ihr seht nun in schlichten Zügen aus Gottes Wort, welches die Gottlosen
 sind, und welches die Bekehrten. Der unwissende Haufen denkt, wenn ein
@@ -638,7 +638,7 @@ denken, dass dies nicht zu ihnen gesagt sei; denn sie seien nicht
 gottlos, sondern bereits bekehrt. Dies eben ist es, weshalb Christus zu
 einigen von den Großen unter den Juden, welche angesehener und
 gebildeter, als der gemeine Haufe waren, sagte: „dass Zöllner und Huren
-wohl eher in’s Himmelreich kommen möchten, denn sie.“ (Matt. 21,31.)
+wohl eher in’s Himmelreich kommen möchten, denn sie.“ ^[Mattäus 21,31]
 Nicht dass eine Hure oder ein grober Sünder selig werden könne ohne
 Bekehrung, sondern weil einer von jenen groben Sündern leichter zur
 Einsicht ihrer Sünde, ihres Elends und der Notwendigkeit einer
@@ -659,7 +659,7 @@ diese fortan in das setzt, worin er sie nimmer vordem suchte. Er lebt
 nicht mehr demselben Zwecke, und wandelt nicht mehr nach demselben Plane
 in der Welt, als er vormals tat; mit einem Worte, wer in Christus ist,
 ist „eine neue Kreatur; das Alte ist vergangen, Alles ist neu worden.“
-(2. Kor. 5,17.) Er hat ein neues Verständniss, einen neuen Willen, neue
+^[2. Korinther 5,17] Er hat ein neues Verständniss, einen neuen Willen, neue
 Entschlüsse, neue Sorgen und Wünsche und Liebe und Freuden, neue
 Gedanken, neue Reden, neue Gesellschaft (wo möglich) und eine neue
 Unterhaltungsweise. Die Sünde, die vordem sie Vergnügen war, ist ihm
@@ -695,8 +695,8 @@ Seele. Die Gottseligen, die ihm bisher nur wie alle anderen Menschen
 vorkamen, sind jetzt die hervorragendsten und glücklichsten auf dem
 Erdkreis; die Gottlosen, die seine Spielgesellen waren, sind jetzt sein
 Schmerz und er, der über ihre Sünde lachen konnte, ist jetzt eher
-bereit, über ihr Sündenelend zu weinen. Psalm XVI, 3. u. XV, 4. Philipp.
-III, 18. Kurz er hat ein neues Ziel bei seinem Denken, einen neuen Weg
+bereit, über ihr Sündenelend zu weinen. ^[Psalm 16,3] ^[Psalm 15,4] ^[Philipper 3,18]
+Kurz er hat ein neues Ziel bei seinem Denken, einen neuen Weg
 bei seinen Bestrebungen und darum ist sein Herz und sein Leben neu.
 Vormals war sein fleischliches Selbst sein Ziel; seine Vergnügungen aber
 und weltliche Vorteile und Geltung unter den Menschen waren sein Weg;
@@ -810,7 +810,7 @@ ehrbare Leute galten, und dergleichen etwas für sich selbst im mindesten
 nicht fürchteten, dennoch dortin fortgeschleppt werden, so würde solch
 ein Gesicht machen, dass ihr nach Hause ginget, und dessen abermals und
 abermals gedächtet, und alle um euch her warntet, wie der verdammte
-Weltling beim Lkas XVI, 28. seinen Bruder wollte gewarnt haben, damit
+Weltling ^[Lukas 16,28] seinen Bruder wollte gewarnt haben, damit
 sie nicht an den Ort der Quaal kämen. Wohlauf denn! der Glaube ist eine
 Art von Gesicht, er ist das Auge der Seele, die Gewissheit dessen, was
 wir nicht gesehen; wenn ich Gott glaube, so kommt dies dem Sehen sehr
@@ -969,8 +969,7 @@ Frage tun wird, und zu dem ich nun übergehe.
 
 # Gottlose können leben, wenn sie sich bekehren 
 
-**Es ist die Verheißung Gottes, dass die Gottlosen leben sollen, wenn
-sie sich nur bekehren.**
+**Es ist die Verheißung Gottes, dass die Gottlosen leben sollen, wenn sie sich nur bekehren.**
 
 Der Herr bekennt hier, dass er daran Wohlgefallen habe, dass der
 Gottlose sich bekehre und lebe. Der Himmel ist eben so gewiss dem
@@ -1067,8 +1066,8 @@ Fragt ihr, wo mein Auftrag ist, dies anzubieten? Aus hundert
 Schriftstellen will ich es euch nur an diesen wenigen nachweisen.
 
 Zuerst seht ihr es hier in meinem Texte und den folgenden Versen und in
-dem 18. Kap. Ezech. so klar, als es immer ausgesprochen werden kann, und
-in Kor. 2,5,17-21. habt ihr den wahren Inhalt unseres Auftrages. „Darum,
+dem 18. Kapitel von Hesekiel. so klar, als es immer ausgesprochen werden kann, und
+in Korinther 2,5.17-21. habt ihr den wahren Inhalt unseres Auftrages. „Darum,
 ist Jemand in Christus, so ist er eine neue Schöpfung; das alte ist
 vergangen, es ist alles neu worden. Aber das alles von Gott, der uns mit
 ihm selber versöhnet hat durch Jesus Christus, und das Amt gegeben, das
@@ -1078,24 +1077,21 @@ unter uns aufgerichtet das Wort von der Versöhnung. So sind wir nun
 Botschafter an Christi statt, denn Gott vermahnt durch uns; so bitten
 wir nun an Christi statt, lasset euch versöhnen mit Gott. Denn er hat
 den, der von keiner Sünde wusste, für uns zur Sünde gemacht, auf dass
-wir würden in ihm die Gerechtigkeit, die vor Gott gilt.“ So Mk. XVI,
-15,16. „Gehet hin in alle Welt, und prediget das Evangelium aller
-Schöpfung. Wer da glaubet und getaufet wird, der wird selig werden; wer
-aber nicht glaubet, der wird verdammt werden.“ Und Lukas XXIV, 46,47.
+wir würden in ihm die Gerechtigkeit, die vor Gott gilt.“
+„Und er sprach zu ihnen: Geht hin in alle Welt und verkündigt das Evangelium der ganzen Schöpfung! 
+Wer glaubt und getauft wird, der wird gerettet werden; wer aber nicht glaubt, der wird verdammt werden.“^[Markus 16,15-16] Und
 „Also musste Christus leiden und auferstehen von den Toten am dritten
 Tage, und predigen lassen in seinem Namen Buße und Vergebung der Sünden
-unter allen Völkern,“ und Apostelgesch. V, 30,31. „Der Gott unsrer Väter
+unter allen Völkern,“^[Lukas 24,46-47] und „Der Gott unsrer Väter
 hat Christus auferweckt, welchen ihr erwürget habet und an das Holz
 gehangen. Den hat Gott durch seine rechte Hand erhöhet zu einem Fürsten
-und Heiland, zu geben Israel Buße und Vergebung der Sünden.“
-Apostelgesch. 13.38,39. „So sei es nun euch kund, lieben Brüder, dass
+und Heiland, zu geben Israel Buße und Vergebung der Sünden.“^[Apostelgesch. 5, 30,31.]
+Wiederum „So sei es nun euch kund, lieben Brüder, dass
 euch verkündigt wird Vergebung der Sünden durch diesen, und von dem
 allen, durch welches ihr nicht konntet im Gesetz Moses gerecht werden.
-Wer aber an diesen glaubet, der ist gerecht.“ Und damit ihr nicht
-denket, dass dies auf die Juden beschränkt ist, seht Galat. 6,15. „denn
-in Christus Jesu gilt weder Beschneidung, noch Vorhaut etwas, sondern
-eine neue Schöpfung.“ Luk. 14,17. „Kommt, denn es ist alles bereit.“ und
-22,24.
+Wer aber an diesen glaubet, der ist gerecht.“ ^[Apostelgeschichte 13,38-39] Und damit ihr nicht
+denket, dass dies auf die Juden beschränkt ist, steht „Denn in Christus Jesus gilt weder Beschneidung noch Unbeschnittensein etwas, sondern eine neue Schöpfung.“^[Galater 6,15]
+und „Kommt, denn es ist alles bereit.“^[Luk. 14,17] ^[Lukas 22,24] d
 
 Ihr seht hieraus, dass wir beauftragt sind, euch allen Leben anzubieten,
 und euch von Gott zu sagen, dass, wenn ihr umkehren wollet, ihr leben
@@ -2176,10 +2172,9 @@ Doch lasst uns zum nächsten Satze kommen und eure Gründe hören.
 
 # Gott fragt Sünde warum sie sterben wollen 
 
-**Der Herr läßt sich herab, mit den unbekehrten Sündern zu überlegen,
-und sie zu fragen, warum sie sterben wollen.**
+**Der Herr läßt sich herab, mit den unbekehrten Sündern zu überlegen, und sie zu fragen, warum sie sterben wollen.**
 
-Dies ist eine seltsame, wunderbare Zwiesprache, sowohl in Rücksicht der
+Das ist eine seltsames, wunderbares Gespräch, sowohl in Rücksicht der
 Streitfrage, als der Streitenden.
 
 1)
@@ -2202,11 +2197,15 @@ Wesen trachtet nach Erhaltung und dem Glück seiner selbst; die Gottlosen
 sind selbstsüchtiger als Andere; wie kann daher irgend einer verdammt
 sein wollen?
 
-Hierauf antworte ich: 1) Es ist eine ausgemachte Wahrheit, dass kein
+Hierauf antworte ich: 
+
+1) Es ist eine ausgemachte Wahrheit, dass kein
 Mensch Böses wollen kann, deshalb, weil es böse ist, sondern nur in
 sofern es den Anschein des Guten hat; viel weniger kann einer ewig
 gepeinigt zu werden wünschen. Elend, als solches, wird von keinem
-begehrt. 2) Bei allem dem ist es noch wahrer, was Gott uns gelehrt hat;
+begehrt. 
+
+2) Bei allem dem ist es noch wahrer, was Gott uns gelehrt hat;
 dass der Grund, warum die Gottlosen sterben und verdammt werden, dieser
 ist, weil sie sterben und verdammt werden wollen. Dieses nun ist in
 verschiedenen Rücksichten wahr.
@@ -2228,8 +2227,8 @@ gottlos bleiben; mögen Gott und Menschen immerhin sagen, was sie wollen;
 fleischlich sind sie und fleischlich wollen sie bleiben; Weltkinder sind
 sie und Weltkinder wollen sie bleiben; obgleich ihnen Gott gesagt hat:
 „dass die Liebe zur Welt Feindschaft ist gegen Gott, und dass, wenn
-irgend Jemand die Welt (in diesem Maaße) liebt, die Liebe des Vaters
-nicht in ihm bleibet.“ (1 Joh. 1,14.) Hieraus folgt, dass diese Leute
+irgend Jemand die Welt (in diesem Maße) liebt, die Liebe des Vaters
+nicht in ihm bleibet.“^[1 Joh. 1,14] Hieraus folgt, dass diese Leute
 Willens sind, verdammt zu werden, obgleich nicht geradezu; sie wählen
 den Weg zur Hölle, und haben die ganz zuverlässige Ursache ihrer Pein
 lieb, obgleich sie die Hölle an und für sich selbst nicht wollen, und
@@ -2316,20 +2315,20 @@ da ihre eigene Seligkeit auf dem Spiele steht.
 
 Kein Wunder, wenn sie uns, die wir Menschen sind, nicht hören wollen, da
 sie den Herrn selbst nicht hören; wie Gott spricht, da er seinen
-Propheten zu den Israeliten sandte (Ezech. 3,7.) das Haus Israel will
+Propheten zu den Israeliten sandte ^[Hesekiel 3,7] das Haus Israel will
 dich nicht hören; denn sie wollen mich selbst nicht hören denn das ganze
 Haus Israel hat harte Stirnen und verstockte Herzen. Kein Wunder, wenn
 sie gegen einen Diener des Wortes oder gegen einen gottseligen Nachbar
 ankämpfen, da sie ja gegen den Herrn selbst und sogar gegen die klarsten
 Stellen seines Wortes ankämpfen und denken, das Recht sei auf ihrer
-Seite. Wie es beim Propheten Malachias (2,17,8,6,7.) heißt: wenn sie
+Seite. Wie es beim Propheten Malachiah ^[Malachiah 2,17,8,6,7] heißt: wenn sie
 durch ihre Reden den Herrn unwillig machen, sagen sie: womit machen wir
 ihn unwillig? wenn sie seinen Namen verachten wagen sie zu fragen: worin
 haben wir deinen Namen verachtet? wenn sie seinen Altar verunreinigen
 und den Tisch des Herrn entweihen wagen sie zu sagen: womit haben wir
 dich verunreiniget? Aber wehe dem (spricht der Herr) der mit seinem
 Schöpfer hadert, nämlich der Scherben mit dem Töpfer des Tons. Spricht
-auch der Ton zu seinem Töpfer: was machst du? (Jes. 45,9.)
+auch der Ton zu seinem Töpfer: was machst du?^[Jes. 45,9]
 
 Frage: Aber warum will denn Gott mit dem Menschen die Sache überlegen?
 
@@ -2450,7 +2449,7 @@ entfernen, oder Erleichterung und Trost schaffen kann, und deshalb kann
 nichts in gültige Betrachtung kommen, um euch über die Vernachlässigung
 eurer eigenen Seligkeit zu entschuldigen; denn unser Erlöser sagt: „was
 hälfe es dem Menschen, wenn er die ganze Welt gewönne, und nähme Schaden
-an seiner Seele?“ Mk. 8,26.
+an seiner Seele?“^[Markus 8,26]
 
 O dass ihr, meine Freunde, nur durch die Heiligen im Himmel erkennen
 könntet, was für große Gegenstände die sind, von welchen wir jetzt zu
@@ -2486,7 +2485,7 @@ wozu Jemand einen ganz guten Grund haben kann, wie einige um ihr Leben
 zu retten. Wenn ihr einen Menschen seinen Leib hingeben seht, dass er zu
 Asche verbrannt oder mit allen Martern und Peinigungen gefoltert werde,
 so ist dies für Fleisch und Blut ein hartes Stück; aber solch einer kann
-gute Gründe dazu haben, wie ihr im Briefe an die Hebräer 11.33,34,35,36.
+gute Gründe dazu haben, wie ihr im Briefe an die Hebräer ^[Hebräer 11,33-36]
 seht, und wie viele hundert Märtyrer gehabt haben. Aber dass ein Mensch
 den Herrn, der ihn gemacht hat, verlässt und in das höllische Feuer
 läuft, nachdem er davon unterrichtet und gebeten worden ist, umzukehren
@@ -2540,7 +2539,7 @@ helfe Gott der großen Menge.
 ihm sei sonst nicht zu glauben. Messet nicht Alles nach euch selbst.
 Gott hat tausende und Millionen von seinen Heiligen; aber doch ist dies
 nur wenig in Vergleich mit der Welt, wie Christus selbst gesagt hat.
-Matt. 7.13,14. Lk. 11.32. Es ist besser, dass ihr der Wahrheit euch
+^[Mattäus 7,13-14] ^[Lukas 11,32] Es ist besser, dass ihr der Wahrheit euch
 bedienet, die Christus gelehret hat. „Gehet ein durch die enge Pforte;
 denn die Pforte ist weit und der Weg ist breit der zur Verdammnis
 abführet, und ihrer sind viele die darauf wandeln. Und die Pforte ist
@@ -2615,8 +2614,8 @@ stürzen?
 kennt nicht Gott, kennt nicht die Sünde, noch Christus, noch die Welt,
 noch sich selbst, noch seinen Beruf auf der Erde, so dass er diesem zu
 genügen sich anschickt, bis er bekehrt ist. Die Schrift sagt, dass die
-Gottlosen unvernünftige Leute sind 2 Tessal. 3.2. und dass Weisheit
-Torheit vor Gott ist. 1 Kor. 1,20. Lk. 15,17. Es wird von dem
+Gottlosen unvernünftige Leute sind ^[2 Thessalonicher 3,2] und dass Weisheit
+Torheit vor Gott ist. ^[1 Korinther 1,20] ^[Lukas 15,17] Es wird von dem
 Verschwender gesagt, dass er, als er zu sich selbst kam, sich entschloß
 sich zu bekehren. Ist es wohl eine weise Welt, wenn der Mensch Gott
 ungehorsam sein will und in die Hölle läuft, aus Furcht den Verstand zu
@@ -2870,7 +2869,7 @@ dem Zustande der Heiligung (wenn die Sonne des Lebens klar über uns
 scheint) mehr Freude an einem Tage, als in einem ganzen Leben sündlicher
 Ergötzungen. „Ich will lieber die Tür hüten in meines Gottes Hause, denn
 lange wohnen in der Gottlosen Hütten. Ein Tag in seinen Vorhöfen ist
-besser, denn sonst tausend.“ Psalm 84,10,11. Die Fröhlichkeit der
+besser, denn sonst tausend.“ ^[Psalm 84,10-11] Die Fröhlichkeit der
 Gottlosen ist gleich dem Lachen eines Wahnsinnigen, der sein eigenes
 Elend nicht kennt, und deshalb sagt Salomo zu solchem Lachen: du bist
 toll, und zur Freude, was machst du? Es ist besser in das Klaghaus
@@ -2915,7 +2914,7 @@ Feindschaft, wie die Schlange gegen den Menschen hat; und da alles, was
 wir sagen können, gegen eine festeinwohnende Neigung ihrer Natur
 gerichtet ist, so ist es nicht zu verwundern, wenn wir wenig vermögen.
 
-​2. Sie sind in Finsternis, und verstehen selbst das nicht, was sie
+​2. Sie sind in Finsternis und verstehen selbst das nicht, was sie
 hören, gleich einem Blindgebornen, der eine große Anpreisung des Lichtes
 hört; - aber was will das Hören tun, wenn er es nicht sieht? – wissen
 nicht, was Gott, noch was die kraft des Kreuzes Christi, noch was der
@@ -2948,7 +2947,7 @@ Fleisches; ihre Willenskraft ist Ohnmacht geworden, und was sie nicht
 tun wollen, davon sagen sie, dass sie es nicht können. Ja, das Weltkind
 ist so mit irdischen Dingen beschäftigt, dass es weder Herz, noch
 Verstand, noch Zeit für das Himmlische hat, sondern wie in Pharaos Traum
-1 B. Mos. 41,4. die magern Kühe die fetten auffraßen, so verzehrt die
+^[1. Mose 41,4] die magern Kühe die fetten auffraßen, so verzehrt die
 magere und trockene Erde alle himmlischen Gedanken.
 
 ​5. Einige werden vom Strome böser Gesellschaft so fortgerissen, dass
@@ -2961,7 +2960,7 @@ ihrem kreise in dieselbe Verdammnis fortgeschleudert ist, so erschreckt
 sie dies gar nicht, weil sie nicht wissen, wohin diese gegangen sind.
 Die armen Verblendeten! sie bleiben diesem allen unerachtet, in ihrer
 Gottlosigkeit, denn sie wissen nicht, dass ihre Genossen jetzt in den
-ewigen Qualen jammern. Bei Lk. 16, würde der reiche Mann gerne einen
+ewigen Qualen jammern. In Lukas 16 würde der reiche Mann gerne einen
 gehabt haben, seine fünf Brüder zu warnen, dass sie nicht auch an den
 Ort der Qual kommen möchten. Wir dürfen annehmen, dass er ihre
 Gesinnungen und ihr Leben kannte, dass er es wusste, dass sie eben
@@ -3035,7 +3034,7 @@ vollkommenes Gesetz gegeben. Als ihr dies gebrochen und euch selbst ins
 Verderben gestürzt hattet, hatte er Erbarmen mit euch und sandte durch
 ein Wunder seiner sich herablassenden Gnade euch seinen Sohn für euch zu
 sterben und ein Opfer für eure Sünden zu werden, denn Gott war in
-Christus und versöhnte die Welt mit ihm selber. ^[(2. Korinther 5,19]
+Christus und versöhnte die Welt mit ihm selber. ^[2. Korinther 5,19]
 
 Der Herr Jesus Christus hat sich selbst euch zum Eigentum geschenkt und
 ewiges Leben mit ihm unter der Bedingung, dass ihr dies annehmen und
@@ -3268,7 +3267,9 @@ mit der Finsternis? wie stimme Christus mit Belial überein?“ ^[2. Kor.
 das sich nichts sagen läßt und widerspricht.“ ^[Röm. 10,21] Was wollt ihr
 jetzt tun? wollet ihr zu Gott um Barmherzigkeit rufen? Wie, Gott ruft
 euch zu, dass ihr Erbarmen mit euch selbst haben sollet und ihr wollt
-nicht. Wir Prediger sehen den Giftbecher in des Säufers Händen und sagen
+nicht. 
+
+Wir Prediger sehen den Giftbecher in des Säufers Händen und sagen
 ihm es ist Gift darin und liegen ihm an, dass er Barmherzigkeit gegen
 seine Seele haben und es unterlassen soll, und er will uns nicht hören;
 trinken muss er und will er; er liebt dies einmal und wenn auch die
@@ -3299,10 +3300,10 @@ Gnade anzunehmen, so lange noch Gnade zu erlangen ist; so wollen sie
 sich doch nicht überreden lassen. Wenn wir darum sterben sollten, wir
 könnten doch nicht mehr ausrichten und bewirken, dass sie darüber bei
 sich nachdächten und umkehrten. Gleichwohl sagen sie, ich hoffe Gott
-wird gnädig sein. Bedenket ihr denn gar nicht, was er sagt: „(Jesaias
-27,11.) „es ist ein unverständiges Volk, darum wird sich auch ihrer
+wird gnädig sein. Bedenket ihr denn gar nicht, was er sagt: 
+„es ist ein unverständiges Volk, darum wird sich auch ihrer
 nicht erbarmen, der sie gemacht hat, und der sie geschaffen hat wird
-ihnen nicht gnädig sein.“ wenn ein anderer euch nicht kleiden will, wenn
+ihnen nicht gnädig sein.“ ^[Jesaja 27,11] wenn ein anderer euch nicht kleiden will, wenn
 ihr nackt seid und euch nicht speisen will, wenn ihr hungrig seid, so
 würdet ihr sagen, er sei unbarmherzig; wenn er euch in’s Gefängniss
 stecken, euch schlagen und foltern wollte, so würdet ihr sagen, er sei
@@ -3554,7 +3555,7 @@ indem ihr eure Sünde und euer Verderben von dem heiligen Gott herleitet.
 Ihr findet keinen Gefallen an den Bestimmungen seiner Weisheit, keinen
 an seiner Gerechtigkeit, sondern nehmt diese für Grausamkeit, keinen an
 seiner Heiligkeit, sondern seid geneigt ihn für so einen zu halten, als
-ihr selbst seid; Psalm 1,21. der es mit der Sünde so leicht nimmt, als
+ihr selbst seid; ^[Psalm 50,21] der es mit der Sünde so leicht nimmt, als
 ihr; keinen Gefallen an seiner Wahrhaftigkeit; sondern möchtet seine
 Drohungen, ja seine bestimmtesten Drohungen, als falsch ansehen. Und
 seiner Güte, welche ihr so hoch zu stellen scheint, widerstrebet ihr
@@ -3578,8 +3579,8 @@ verwegene Annahme über den Zweck des Tods Christi herbeigeführt wird.
 Das aber bedenket ihr nicht, dass er gekommen ist, sein Volk von seinen
 Sünden zu erlösen und sich selbst ein eigenes Volk zu heiligen und es
 durch Heiligkeit herzustellen nach dem Ebenbilde seines himmlischen
-Vaters, und das Haupt seiner Gemeinde zu sein. ^[Matt. 1,26. Tit. 2,14. 1.
-Petr. 1,15,16. Kol. 3,10,11. Philipp. 3,9,10.]
+Vaters, und das Haupt seiner Gemeinde zu sein. ^[Mattäus 1,26] ^[Titus 2,14] ^[1.
+Petrus 1,15-16] ^[Kolosser 3,10-11] ^[Philipper 3,9-10]
 
 ​6. Ebenfalls leitet ihr eure eigene Zerstörung von alten Anstalten und
 Werken Gottes her. Wenn ihr an sein ewiges Vorwissen und seine
@@ -3707,12 +3708,12 @@ größeren aussinnen, als eben dieser ist.
 ​4. Ihr handelt falsch gegen das Vertrauen, das Gott in euch gesetzt
 hat. Er hat euch euer eigenes Heil anvertraut und wollt ihr dies
 Vertrauen zu euch betrügen? Er hat euch anbefohlen mit allem Fleiße eure
-Herzen zu behüten, (Sprüche. 4,23.) aber heißt dies sie behüten?
+Herzen zu behüten, ^[Sprüche. 4,23] aber aber tut ihr es auch?
 
 ​5. Ihr hindert alle, Mitleid mit euch zu empfinden, da ihr nicht
 Mitleid mit euch selbst haben wollet. Wenn ihr zu Gott in den Tagen
 eures Elendes um Erbarmen, um Erbarmen schreit, was könnet ihr erwarten,
-als dass er euch von sich stoßen und sagen wird: ei, du wolltest kein
+als dass er euch von sich stoßen und sagen wird: Ei, du wolltest kein
 Erbarmen mit dir selbst haben. Wer hat dich in diese Lage gebracht, als
 deine eigene Halsstarrigkeit? Und wenn eure Brüder euch in ewigem Elende
 sehen, wie sollen sie mit euch Mitleid haben, die ihr eure eigenen
@@ -3739,7 +3740,7 @@ sie nicht fahren. Wohl dem Menschen, der mir gehorcht, dass er wache an
 meiner Tür täglich, dass er wache an den Pfosten meiner Tür. Wer mich
 findet, der findet das Leben und wird Wohlgefallen von dem Herrn
 bekommen. Wer aber an mir sündiget, der verletzt seine Seele. Alle, die
-mich hassen lieben den Tod.! (Sprüche. 8,33-36.)
+mich hassen lieben den Tod.! ^[Sprüche. 8,33-36]
 
 So bin ich nun zum Schlusse dieses Werkes gekommen. Mein Herz wird
 beunruhigt, wenn ich bedenke, wie ich euch verlassen soll, dass nicht
@@ -3751,7 +3752,7 @@ Widerspenstigkeit des irdischen Herzens kenne, so kann ich dennoch mit
 dem Propheten Jeremia 17,16. sagen: „ich habe den traurigen Tag nicht
 begehret, der Herr weiß es.“ Ich habe nicht mit Jakob und Johannes
 begehret, dass Feuer vom Himmel falle zu verzehren die, welche Jesus
-Christus abwiesen. Lk. 9,54. Vielmehr ist die Verhütung des ewigen
+Christus abwiesen.^[Lukas 9,54] Vielmehr ist die Verhütung des ewigen
 Feuers das, worauf ich diese ganze Zeit hingearbeitet habe, und o, dass
 es nicht ein unnötiges Bemühen möge gewesen sein! Teuren Freunde, es
 geht mir so nahe, dass ihr im ewigen Feuer liegen und von dem Himmel
@@ -3876,7 +3877,7 @@ als ich euch jetzt bringe, mit mehr wachem und achtsamerem Herzen hören.
 Gut denn, kann ich es auch nicht von euch allen mir versprechen, so will
 ich doch der Hoffnung Raum geben, dass einige unter euch jetzt sich
 vorsetzen, umzukehren und zu leben; und geneigt sind, mich zu fragen,
-wie die Juden Petrum fragten, Apostelgesch. 2,37. als sie in ihren
+wie die Juden Petrum fragten^[Apostelgeschichte 2,37], als sie in ihren
 Herzen sich getroffen fühlten und sagten: „Ihr Männer lieben Brüder; was
 sollen wir tun?“ Wie gelangen wir zur wahrhaften Bekehrung? Willen haben
 wir wohl, wenn wir nur unsere Pflicht kenneten. Gott bewahre, dass wir
@@ -3884,10 +3885,10 @@ das Verderben suchen sollten, indem wir nie bisher der Bekehrung
 widerstanden.
 
 Wenn dieses die Gedanken und Vorsätze eurer Herzen sind, so sage ich von
-euch, was Gott zu dem Volke sagte, das sich ihm gelobte: 5. B. Mos.
-5,28,29. „Es ist alles gut, was sie gesagt haben. Ach, dass sie ein
+euch, was Gott zu dem Volke sagte, das sich ihm gelobte: 
+„Es ist alles gut, was sie gesagt haben. Ach, dass sie ein
 solches Herz hatten, mich zu fürchten und zu halten alle meine Gebote
-ihr Leben lang.“ Eure Vorsätze sind gut, o dass ihr nur ein Herz hättet,
+ihr Leben lang.“ ^[5. Mose 5,28-29] Eure Vorsätze sind gut, o dass ihr nur ein Herz hättet,
 diese Vorsätze auszuführen! In dieser Hoffnung nun will ich euch hievon
 mit Freuden eine Anweisung geben, was ihr zu tun habt und dies in aller
 Kürze, damit ihr euch dessen bei eurer Ausübung desto leichter erinnert.
@@ -4012,7 +4013,7 @@ eurer Seite um umgestaltet zu werden. Alles dieses ist sehr vonnöten.
 
 **Zweite Regel**
 
-Wenn ihr bekehret und selig werden wollet, so gebt euch oft einer
+Wenn ihr bekehrt und gerettet werden wollet, so gebt euch oft einer
 zurückgezogenen, ernsten Betrachtung hin. Die Vernachlässigung hiervon
 stürzt die Welt in’s Verderben. Ziehet euch oft in abgeschiedene
 Einsamkeit zurück und bedenkt dort den Zweck, zu welchem ihr geschaffen
@@ -4026,15 +4027,15 @@ Wandels. Versenket eure Herzen ganz in Erwägungen dieser Art. –
 
 **Dritte Regel**
 
-Wollet ihr bekehret und selig werden, so achtet auf das Wort Gottes,
+Wollet ihr bekehret und gerettet werden, so achtet auf das Wort Gottes,
 welches das gewöhnliche Heilmittel ist. Leset die Schrift oder höret sie
 lesen, und andere heilige erbauliche Bücher, welche mit ihr beharrlich
 übereinstimmen; beachtet die öffentliche Predigt des göttlichen Wortes.
 Wie Gott der Welt Licht verleihet durch die Sonne und nicht durch sich
 selbst unmittelbar, so will er auch die Menschen durch seine Diener,
-welche das Licht der Welt sind, bekehren und selig machen. Apostelgesch.
-26,17,18. Matt. 5,14. Als er den Paulus wunderbar gedemütigt hatte,
-sendete er ihn zu Ananias, Apostelgesch. 9,10., und nachdem er einen
+welche das Licht der Welt sind, bekehren und retten. ^[Apostelgeschichte
+26,17.18] ^[Mattäus 5,14] Als er den Paulus wunderbar gedemütigt hatte,
+sendete er ihn zu Ananias ^[Apostelgeschichte 9,10] und nachdem er einen
 Engel an Cornelius geschickt hatte, ward ihm geheißen zu Petrus zu
 schicken, der ihm sagen sollte, was er glauben und tun soll.
 
@@ -4064,8 +4065,8 @@ Augenblicklich, wenn es möglich ist, verändert euren Umgang, falls
 dieser bisher schlecht war, doch nicht so, dass ihr eure
 Blutsverwandtschaften aufgebt, sondern nur eure überflüssigen
 Sündengenossen. Schließet euch vielmehr an solche, die den Herrn
-fürchten und erfraget bei ihnen den Weg zum Himmelreiche. Apostelgesch.
-9,19,26. Ps. 15,4.
+fürchten und erfraget bei ihnen den Weg zum Himmelreiche.^[Apostelgeschichte 
+9,19.26] ^[Psalm 15,4]
 
 **Siebente Regel**
 
@@ -4073,9 +4074,9 @@ Ergebt euer Selbst ganz dem Herrn Jesu, als dem Arzte eurer Seelen, dass
 er euch durch sein Blut Vergebung schaffe und durch seinen Geist, durch
 sein Wort und seine Diener, die Werkzeuge seines Geistes, euch heilige.
 Er ist der Weg, die Wahrheit und das Leben, und Niemand kommet zum
-Vater, als durch ihn, Johan. 14,1. „Auch ist kein Name den Menschen
-gegeben, dadurch sie könnten selig werden, als der Name Jesu.“
-Apostelgesch. 4,12. Beeifert euch daher, seine Person und seine Naturen,
+Vater, als durch ihn,^[Johananes 14,1] „Auch ist kein Name den Menschen
+gegeben, indem sie gerettet werden können, als der Name Jesu.“
+^[Apostelgeschichte 4,12] Beeifert euch daher, seine Person und seine Naturen,
 was er für euch getan hat, was er euch ist, was er euch sein will und
 wie so genügend ist in ihm allen euren Bedürfnissen vollkommen
 abzuhelfen, so durchaus recht kennen zu lernen.

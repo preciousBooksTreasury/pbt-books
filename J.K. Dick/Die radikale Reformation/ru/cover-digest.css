@@ -21,16 +21,18 @@ html {
   width: 3444px;
 }
 
-#back {
+td#back {
   width: 69px;
   max-width: 69px;
   height: 2625px;
 }
 
-#back {
+/* this is in the table */
+td#back {
   background-color: rgba(0, 0, 0, 0.8);
 }
 
+/* this is a overlay */
 #back-text {
   position: absolute;
   top: 0;
