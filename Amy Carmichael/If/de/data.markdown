@@ -62,42 +62,42 @@ Wie es zu "Wenn" kam.
 =====================
 
 Eines Abends sprach ein Mitarbeiter mit mir über eine jüngere Schwester,
-welche nicht in Liebe wandelte. Dies führte zu einer schlaflosen Nacht,
-weil zu solch einer Zeit die Frage immer ist: “Ich bin es doch nicht,
-Herr?”Mt 26:22 Habe ich sie vernachlässigt? Was habe ich von der Liebe
-Christi zu uns am Kreuz erkannt? Und dann kamen die “Wenn”s eine nach
-der anderen.
+welche nicht in der Liebe wandelte. Dies führte zu einer schlaflosen Nacht,
+weil zu solch einer Zeit immer die Frage ist: “Ich bin es doch nicht,
+Herr?” ^[Mt 26:22] Habe ich sie vernachlässigt? Was habe ich von der Liebe
+Christi zu uns am Kreuz erkannt? Und dann kamen die “Wenn”s eins nach
+dem anderen.
 
 Am nächsten Morgen habe ich sie mit den anderen geteilt, denn ich hatte
-sie in der Nacht niedergeschrieben. Und auch ein paar andere teilten ihr
-Gedanken. Nach diesem druckten wir ein paar Kopien mit unserer kleinen
+sie in der selben Nacht niedergeschrieben. Und auch ein paar andere teilten ihr
+Gedanken mit uns. Nach diesem druckten wir ein paar Kopien mit unserer kleinen
 Handpresse nur für uns; und dies führte zu diesem Büchlein.
 
 Als man uns danach gefragt hat, war unsere erste Reaktion: “Nein, es ist
 viel zu privat.” Aber wenn es jemanden hilft zu verstehen, was ein Leben
 aus Liebe bedeutet, dann haben wir nicht das Recht es zu verweigern.
 
-Manche von der “Wenn”s scheinen mit Stolz, Egoismus oder Feigheit zu
+Manche von den “Wenn”s scheinen mit Stolz, Egoismus oder Feigheit zu
 tun, aber wenn wir tiefer graben, kommen zur einer unerwarteten
-Lieblosigkeit als der Wurzel all dessen. Die Seiten in Teil 2 sind nicht
+Lieblosigkeit als der Wurzel all dessen. Die Seiten in zweiten Abschnitt sind nicht
 dazu gedacht eine nach der anderen gelesen zu werden. Vielleicht hat ein
 “Wenn” hier oder da das nötige Wort. Aber gewiss kann der Leser dann was
-Erbauendes im dritten Teil finden.
+Erbauendes im dritten Abschnitt finden.
 
 Und wenn ein wahrer Nachfolger durch die Worte “dann weiß ich nichts von
-der Liebe Christi” besorgt wird, dann muss ich sagen, dass die Gedanken
-mir eben in dieser Form kamen, und ich fürchte sie abzuschwächen. Und
+der Liebe Christi” betrübt wird, dann muss ich sagen, dass die Gedanken
+mir eben in dieser Form kamen und ich fürchte mich sie abzuschwächen. Und
 hier gilt auch, wie sonst überall, dass der Buchstabe tötet ^[2Kor 3:6].
 Der Apostel Paulus hielt alle Dinge für Verlust ^[Phil 3:8] dass er möge
-Ihn kennen, welchen er schon kannte. Und die Seele, plötzlich erleuchtet
-durch ein paar frische, alles in den Schatten stellende, Austeilungen
+Ihn erkennen, welchen er schon kannte. Und die Seele, plötzlich erleuchtet
+durch ein paar frische und alles in den Schatten stellende Austeilungen
 der Erkenntnis der Liebe Gottes, welche sichtbar wurde auf Golgatha,
 macht keine Pause um abzumessen, wie viel oder wenig sie von der Liebe
 davor schon kannte. Durchbohrt, geschmolzen und zerbrochen vor dem
 Anblick der Liebe, fühlt es, dass wahrlich alles was sie bisher kannte,
 nichts war, ja so sogar weniger als nichts.
 
-Ich denke ist klar, dass dieses Büchlein nicht für jedermann gedacht
+Ich denke es ist klar, dass dieses Büchlein nicht für jedermann gedacht
 ist, sondern nur für solche, welche berufen sind Unterhirten zu sein.
 Und für manche von ihnen hat es auch kein Wort. Sie sind schon in das
 eingetreten, was mich antrieb zu schreiben. A.C.
@@ -105,17 +105,16 @@ eingetreten, was mich antrieb zu schreiben. A.C.
 Teil 1 
 ======
 
-Es gibt Zeiten wenn etwas in unser Leben kommt, welches in Liebe gehüllt
-ist in solch einer Weise, dass es für uns das Ewige zu öffnen scheint,
+Es gibt Zeiten, wenn etwas in Liebe gehülles in unser Leben in solch einer Weise kommt, dass es für uns das Ewige zu öffnen scheint,
 oder wenigsten einige der ewigen Dinge, von welchen die Größte die Liebe
 ist.
 
 Es mag ein zärtliche Berührung unserer Herzen sein, leicht wie ein
-Abendwind die Blätter streift, etwas was man nicht in Worte fassen und
+Abendwind die Blätter streichelt, etwas was man nicht in Worte fassen und
 anderen wiedergeben kann. Aber wir wissen, es ist unser Herr. Und dann
 vielleicht scheint der Raum, in dem wir sind, mit seiner Möbel, Büchern
-und Blumen, weniger “präsent” zu sein, als seine Präsenz, und unser Herz
-ist von der Süße dessen eingenommen, wie die alte Hymne singt:
+und Blumen, weniger präsent zu sein, als seine Präsenz, und unser Herz
+ist von der Süße dessen eingenommen, von dem alte Hymne singt:
 
 >  Der Zunge hier das Wort gebricht,\
 >  der Schrift das rechte Zeichen fehlt,\
@@ -123,16 +122,16 @@ ist von der Süße dessen eingenommen, wie die alte Hymne singt:
 >  weiß, welche Wonne sie enthält.
 
 Oder ist es die teure Liebe von Menschen, in welcher wir baden können
-wie an einem Sommertag sind und immer wieder dadurch erfrischt. Können
+wie an einem Sommertag und immer wieder dadurch erfrischt werden. Können
 wir jemals aufhören zu staunen über die Liebe unserer Gefährten? Und
 dann erkennen wir plötzlich unseren Herrn ihn ihnen. Es ist seine Liebe,
-die so überschwänglich ist an uns. O die Liebe Gottes ausgegossen auf
-die Deinen, wir beten dich an
+die so überschwänglich ist an uns. O, die Liebe Gottes ausgegossen auf
+die Deinen, wir beten dich an.
 
 Oder (vielleicht nicht so oft, weil Halbdunkel scheint förderlich zu
 sein für uns hier, aber manchmal, denn unser Herr ist barmherzig) ist es
 uns erlaubt durch den blauen Himmel zu schauen und Gottes Liebe zu
-sehen. Aber dennoch, wie wenig sehen wir! “damit ihr imstande seid, mit
+sehen. Aber dennoch, wie wenig sehen wir! “Damit ihr imstande seid, mit
 allen Heiligen völlig zu erfassen, was die Breite und Länge und Höhe und
 Tiefe ist, und zu erkennen die die Erkenntnis übersteigende Liebe des
 Christus” ^[Eph 3:18-19] - diese Worte sind zu hoch für uns. Was erkennen
@@ -140,7 +139,7 @@ wir, was verstehen wir? Verlegen und gedemütigt, gehen wir in die
 Felsenhöhle und verstecken uns im Staub vor der Herrlichkeit der
 Majestät der Liebe ^[2Mo 33:22] - die Liebe deren Zeichen das Kreuz ist.
 
-Die eine Frage bleibt: Was erkenn ich von der Liebe Christi?
+Die eine Frage bleibt: Was erkenne ich von der Liebe Christi?
 
 Teil 2 
 ======
@@ -159,7 +158,7 @@ weiß ich nichts von der Liebe Christi.
 sprechen kann; Wenn ich sogar locker von den Vergehungen eines Kindes
 sprechen kann, dann weiß ich nichts von der Liebe Christi.
 
-**Wenn** ich mich dabei ertappe, dass ich Verfehlungen anderer
+**Wenn** ich mich dabei selbst ertappe, dass ich Verfehlungen anderer
 halbherzig als selbstverständlich ansehe, “Oh, das tut er immer”, “Oh,
 natürlich redet sie so, handelt er so”, dann weiß ich nichts von der
 Liebe Christi.
@@ -173,7 +172,7 @@ unfreundliches Wort sprechen, einen unfreundlichen Gedanken haben kann
 ohne Kummer und Schamgefühl, dann weiß ich nichts von der Liebe Christi.
 
 **Wenn** beschwerliche Dinge geschehen und ich nicht weitaus mehr für
-meine betrübten Retter fühle als für mein besorgtes Selbst,dann weiß ich
+meine betrübten Retter fühle als für mein besorgtes Selbst, dann weiß ich
 nichts von der Liebe Christi.
 
 **Wenn** ich wenig weiß von Seinem innigen Mitgefühl(Und der Herr wandte
@@ -188,7 +187,7 @@ Wenn ich jemanden zurechtweisen kann ohne Schmerz, dann weiß ich nichts
 von der Liebe Christi.
 
 **Wenn** ich ermatte unter der Strapaze an jemanden zu arbeiten, der
-sich nicht öffnet, und mich von der Last drücke, dann weiß ich nichts
+sich nicht öffnet, und mich vor der Last drücke, dann weiß ich nichts
 von der Liebe Christi.
 
 **Wenn** ich es nicht ertragen kann so zu sein wie der Vater, welcher
@@ -213,12 +212,12 @@ bis es heißt “Siehe, eine Wolke, klein wie Hand eines Mannes steigt aus
 dem Meer herauf”, dann weiß ich nichts von der Liebe Christi.
 
 **Wenn** meine Einstellung die eine von Befürchtung ist und nicht von
-Liebe zu jemanden der mich enttäuscht hat; Wenn ich sage: “Genau was ich
-erwartet habe”, dann weiß ich nichts von der Liebe Christi.
+Liebe zu jemanden, der mich enttäuscht hat; Wenn ich sage: “Genau das habe ich
+erwartet”, dann weiß ich nichts von der Liebe Christi.
 
 **Wenn** ich nicht mit Augen der Hoffnung auf denjenigen schauen kann,
-im welchem nur ein undeutlicher Anfang zu sehen ist, wie unser Herr tat,
-gleich nachdem ein Streit unter den Jüngern entstand wer von ihnen als
+im welchen nur ein undeutlicher Anfang zu sehen ist, wie unser Herr es tat,
+gleich nachdem ein Streit unter den Jüngern entstand, wer von ihnen als
 der Größe zu gelten habe, milderte Er seine Ermahnung mit diesen
 herzerweichenden Worten: “Ihr aber seid es, die mit mir ausgeharrt haben
 in meinen Versuchungen” ^[Lk 22:28], dann weiß ich nichts von der Liebe
@@ -359,7 +358,7 @@ weiß ich nichts von der Liebe Christi.
 Komfort, oder sogar auf ihre kleinen Schwachheiten; wenn ich
 leichtfertig bin mit ihren wunden Punkten und Gelegenheiten verpasse
 ihren Weg zu ebenen; wenn ich das süße Drehen der Zahnräder des
-Haushalts behindere dann weiß ich nichts von der Liebe Christi.
+Haushalts behindere, dann weiß ich nichts von der Liebe Christi.
 
 **Wenn** Unterbrechungen mich verärgern, und Seelsorge mich ungeduldig
 macht; wenn ich die Seelen um mich verdunkle, weil ich selbst düster
@@ -405,13 +404,13 @@ geistlichen Schmeichelei süß für mich schmeckt, dann weiß ich nichts von
 der Liebe Christi
 
 **Wenn** es für mich nicht einfach ist zu sagen: “Eiferst du für mich?
-Mögen doch alle im Volk des HERRN Propheten sein” ^[4Mo 11:29], dein weiß
+Mögen doch alle im Volk des HERRN Propheten sein” ^[4Mo 11:29], dann weiß
 ich nichts von der Liebe Christi
 
 **Wenn** ich in der Gemeinschaft des Dienstes, suche einen Freund an
 mich so zu binden, dass andere sich unerwünscht fühlen würden; wenn
 meine Freundschaften andere nicht tiefer hinzuziehen, sondern
-unnachsichtig sind (also nur zu mir selbst, für mich selbst) dann weiß
+unnachsichtig sind (also nur zu mir selbst, für mich selbst), dann weiß
 ich nichts von der Liebe Christi.
 
 **Wenn** ich einem mir Lieben, die Möglichkeit für Christus zu leiden
@@ -447,7 +446,7 @@ stehen lassen kann, dann weiß ich nichts von der Liebe Christi
 
 **Wenn** ich es etwas Vorgenommenen zu viel Aufmerksamkeit gebe, indem
 ich es mir selbst vergrößere und heimtückisch auch anderen; wenn ich
-anderen denken lasse, dass es schwer“” ist; wenn ich sehnsüchtig auf das
+anderen denken lasse, dass es schwer ist; wenn ich sehnsüchtig auf das
 zurück schaue, was war, und auf den Nebenwegen meines Gedächtnises
 herumlungere, sodass meine Fähigkeit anderen zu helfen geschwächt ist,
 dann weiß ich nichts von der Liebe Christi
@@ -457,16 +456,16 @@ schwere Tat leicht macht, und jede Unebenheit eben, dann weiß ich nichts
 von der Liebe Christi
 
 **Wenn** ich mich weigere das Weizenkorn zu sein, dass in die Erde fällt
-und stirbt ^[Joh 12:24] (es ist von allem getrennt in was es bisher gelebt
-hat“”), dann weiß ich nichts von der Liebe Christi
+und stirbt ^[Joh 12:24] (“es ist von allem getrennt in was es bisher gelebt
+hat”), dann weiß ich nichts von der Liebe Christi
 
 **Wenn** ich darum bete von Versuchungen erlöst, anstatt aus der
 Versuchung erlöst werden, zum Preise seiner Herrlichkeit; Wenn ich den
 vergesse das der Weg des Kreuzes zum Kreuz führt und nicht zu einer
 Blumenwiese; wenn ich nach diesen Vorstellungen mein Leben ordne, oder
 sogar unbewusst mein Denken, sodass ich verwundert bin, wenn der Weg
-hart ist, obwohl es “Lasst euch nicht befremden” ^[1Petr 4:12] und Haltet
-für lauter Freude“” ^[Jak 1:2] heißt, dann weiß ich nichts von der Liebe
+hart ist, obwohl es “Lasst euch nicht befremden” ^[1Petr 4:12] und “Haltet
+für lauter Freude” ^[Jak 1:2] heißt, dann weiß ich nichts von der Liebe
 Christi
 
 **Wenn** das Höchste, das Härteste, nicht von mir verlangt werden kann;
@@ -476,7 +475,7 @@ zuwenden, dann weiß ich nichts von der Liebe Christi
 **Wenn** ich einen anderen Platz mehr auf Erden begehre als den Staub zu
 den Füßen des Kreuzes, dann weiß ich nichts von der Liebe Christi.
 
-Das was ich nicht weiß, lehre mich o Herr, mein Gott.
+Das was ich nicht weiß, lehre mich o HERR, mein Gott.
 
 Teil 3 
 ======
@@ -524,8 +523,8 @@ allen Seiten wie Luft. Höre auf zu widerstehen, und die Liebe nimmt
 sofort Besitz. Und wie das Gedicht “Quia amore langues” aus dem 15.
 Jahrhundert sagt:
 
-Sehne und liebe so sehr,\
- meine Liebe ist doch mehr.
+> Sehne und liebe so sehr,\
+> meine Liebe ist doch mehr.
 
 Mehr, überaus mehr. So wie sein Übermaß an Vergebung in Worte nicht zu
 fassen ist, so ist sein Übermaß an Liebe: So fern der Osten ist vom
@@ -533,9 +532,9 @@ Westen, so hoch wie der Himmel ist über der Erde. Worte fehlen. Liebe
 steigt über sie hoch hinweg. Auf uns selbst zu schauen, führt zur
 Verzweiflung. Doch Gott sei Dank, reinigt uns sein Blut.
 
-Wenn du verdorben bist, werde ich dich reinigen \
- Wenn du krank bist, werde ich dich heilen \
- Hast du je Liebe so real gefunden.
+> Wenn du verdorben bist, werde ich dich reinigen \
+> Wenn du krank bist, werde ich dich heilen \
+> Hast du je Liebe so real gefunden.
 
 Nie, Herr, nie
 
@@ -607,24 +606,24 @@ ward, um dieses Leben vom Verderben zu retten.
 
 Dann (nur solche welche durch eine solche dunkle Stunde gegangen sind,
 werden verstehen) hat eine Furcht schlimmer als jeder Schmerz uns im
-Griff: Schwindet die Liebe in uns? \
- “Vater, vergib ihnen! Denn sie wissen nicht, was sie tun.” ^[Lk 23:34] -
-vergessen wir das?\
- “Die Liebe vergeht niemals” ^[1Kor 13:8] - sollte sie nun jetzt vergehen?\
- Solche es dazu kommen, dass wir auf Lieblosigkeit mit Lieblosigkeit
+Griff: Schwindet die Liebe in uns?
+“Vater, vergib ihnen! Denn sie wissen nicht, was sie tun.” ^[Lk 23:34] -
+vergessen wir das?
+“Die Liebe vergeht niemals” ^[1Kor 13:8] - sollte sie nun jetzt vergehen? 
+Solche es dazu kommen, dass wir auf Lieblosigkeit mit Lieblosigkeit
 antworten?
 
 In solch einer Stunde hab ich ein Gedicht geschrieben, welches mein
 verzweifeltes Gebet ausdrückte
 
-Tiefer als Tief, o Herr,\
- hallt es in mir\
- Gestärkt komm ich\
- Herr zur dir\
- Jesus von Golgotha\
- zerschlagen für mich\
- Nimm was du willst,\
- nur lass die Liebe mir\
+>| Tiefer als Tief, o Herr,\
+>| hallt es in mir\
+>| Gestärkt komm ich\
+>| Herr zur dir\
+>| Jesus von Golgotha\
+>| zerschlagen für mich\
+>| Nimm was du willst,\
+>| nur lass die Liebe mir\
 
 Ja, nimmt was du willst, jegliche Hoffnung, jegliche Freude von
 menschliche Zuneigung, jeglichen Lohn für Liebe, aber die Liebe selbst
@@ -638,46 +637,43 @@ Unser teuer Herr hört auf das Gebet eines ungeheucheltes Herzens, und es
 steht um unseres Trostes willen, dass er denen die ihn lieben, Besitz
 vererbt ^[Spr 8:21]. Dieser Besitz ist die “Gnade um Gnade”, die
 immerwährende Fülle seiner Gnade. Diese Gnade ist nicht nur ein
-“unpersönlicher Besitz”, sondern dass Gott in uns wirkt, der Herr selbst
+“unpersönlicher Besitz”, sondern die Tatsache, dass Gott in uns wirkt, der Herr selbst
 im Einsatz an der Quelle unsere Gedanken und Willensregungen. Gott ist
 Liebe, so ist die Liebe für uns dieser gesegneter Besitz, den die Kinder
 Gottes vererbt bekommen.
 
 Es ist wieder das Bild vom Fluss. Das trockene Flussbett “erbt” das
-Wasser das durch ihn strömt aus den Bergen. Er hat das Wasser nicht
-geschaffen, es empfängt es nur. Seine Vorratskammern werden gefüllt,
+Wasser, das durch ihn strömt aus den Bergen. Er hat das Wasser nicht
+geschaffen, er empfängt es nur. Seine Vorratskammern werden gefüllt,
 seine Vorräte fließen über zum Segen und Erfrischung des Landes. Es ist
 genauso mit uns, unsere Vorratskammern, unsere Jahre mit all ihren
 Monaten, Wochen, Tagen, Stunden, Minuten sind gefüllt mit den
-überfließenden Schätzen der Liebe, dass wir anderen helfen mögen,
+überfließenden Schätzen der Liebe, damit wir anderen helfen mögen.
 
 Wer hätte eine solche Freude für uns erdenken können, als nur der,
 dessen Name Liebe ist. Dem aber, der über alles hinaus zu tun vermag,
 über die Maßen mehr als wir erbitten oder erdenken, gemäß der Kraft, die
-in uns wirkt, ihm sei die Herrlichkeit. ^[Eph 3:20-21]
+in uns wirkt, ihm sei die Herrlichkeit […]. ^[Eph 3:20-21]
 
 Ich möchte mit einen einfachen Gedanken enden: Lasst uns diese
-schlichten Worte hören, unser Herr spricht bloß: “Vertraue mir, mein
-Kind”. Er sagt: “Vertraue mir mit einem demütigen Herzen und mir einer
-größeren Hingabe zu meinem Willen, mehr als je zuvor. Vertraue mir meine
-Liebe durch dich fließen zu lassen, Minute um Minute. Und wenn du dir
-etwas bewusst bist, dass den Fluss hindert, so verletz meine Liebe
-nicht, indem du von mir weggehst in Entmutigung, weil mir nichts mehr
+schlichten Worte hören. Unser Herr spricht bloß: “Vertraue mir, mein
+Kind”. Er sagt: “Vertraue mir mit einem demütigen Herzen und mit einer
+größeren Hingabe zu meinem Willen, mehr als je zuvor. Vertraue mir, meine
+Liebe durch dich fließen zu lassen, Minute um Minute. Und wenn einer Sache bewusst bist, 
+welche den Fluss hindert, so verletz meine Liebe
+nicht, indem du von mir emutigt weggehst, weil mir nichts mehr
 wehtut als dies. Zieh zu mir, komm, flieh zu mir, um dich zu verbergen,
 ja sogar vor dich selbst. Sprich mit mir über deine Sorgen. Vertraue
 mir, dass ich meine Hand erheben und diesen Felsbrocken entfernen mag,
-der deinen Flussbett austrocknen ließ, und auch all den Sand der deinen
+der deinen Flussbett austrocknen ließ, und auch all den Sand, der deinen
 Wasserlauf verschlammt hat. Ich werde dich nicht verlassen, bis ich
 getan, was ich zu dir geredet habe. ^[1Mo 28:15] Ich werd's für dich
 vollenden. ^[Ps 138:8] Fürchte dich nicht, mein liebes Kind, fürchte dich
-nicht ^[Jes 41:10] ”
+nicht. ^[Jes 41:10] ”
 
-Geliebte, lasst uns lieben\
- Herr, was ist Liebe?\
- Liebe ist das, was mein Leben beflügelt hat, mich zu meinem Kreuz
-führte, und mich dort festhielt \
- Liebe ist das, was es dir zu einer Freude machen wird, dein Leben für
-deine Brüder zu geben\
- Herr, gib mir diese Liebe immerdar \
- Glückselig sind die, welche hungern und dürsten nach Liebe, denn sie
-werden gesättigt werden
+> Geliebte, lasst uns lieben \
+> Herr, was ist Liebe? \
+>  Liebe ist das, was mein Leben beflügelt hat, mich zu meinem Kreuz führte, und mich dort festhielt \
+> Liebe ist das, was es dir zu einer Freude machen wird, dein Leben für deine Brüder zu geben \
+> Herr, gib mir diese Liebe immerdar \
+> Glückselig sind die, welche hungern und dürsten nach Liebe, denn sie werden gesättigt werden
